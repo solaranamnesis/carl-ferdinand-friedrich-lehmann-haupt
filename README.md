@@ -2,6 +2,13 @@
 
 Public Domain Works by Carl Ferdinand Friedrich Lehmann-Haupt (1861-1938).
 
+## Die historische Semiramis und Herodot.
+
+English - Plain Text  
+English - PDF  
+[German - Plain Text](die-historische-semiramis-und-herodot/full-text-german.md)  
+German - PDF | Fraktur | Schwabacher | Custom01  
+
 ## Die historische Semiramis und ihre Zeit.
 
 English - Plain Text  
