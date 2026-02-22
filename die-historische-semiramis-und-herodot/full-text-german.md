@@ -154,14 +154,7 @@ Betracht kommen kann,* besagt, dass _Adadnirari 3._ sich vor dem Gotte „_Na[b�
 
 Von hier aus fällt denn auch auf diesen Vorgang ein erklärendes Schlaglicht.
 
-Die Einführung des Nebokultes lieferte die Möglichkeit, das babylonische 
-Königtum auf assyrischem Boden rite zu erwerben oder vielmehr ein Surrogat 
-für diese Möglichkeit. Als „König von Babylon,“ d. h. als legitimer König 
-von Babylonien galt nur, wer am Jahresanfang in _Esaggil_ die Hände _Bêl- 
-Marduk_'s erfasst hatte,* und diese Ceremonie musste, wie es scheint, an jedem 
-Neujahrstage wiederholt werden. Die Assyrerkönige, die faktisch über 
-Babylonien herrschten, haben sich in späterer Zeit, diesem Brauche unter- 
-zogen: sie haben das babylonische Königtum in Personalunion mit dem 
+Die Einführung des Nebokultes lieferte die Möglichkeit, das babylonische Königtum auf assyrischem Boden rite zu erwerben oder vielmehr ein Surrogat für diese Möglichkeit. Als „König von Babylon,“ d. h. als legitimer König von Babylonien galt nur, wer am Jahresanfang in _Esaggil_ die Hände _Bêl-Marduk_'s erfasst hatte,* und diese Ceremonie musste, wie es scheint, an jedem Neujahrstage wiederholt werden. Die Assyrerkönige, die faktisch über Babylonien herrschten, haben sich in späterer Zeit, diesem Brauche unterzogen: sie haben das babylonische Königtum in Personalunion mit dem assyrischen vereinigt. Ihrem Beispiele sind auch die Perserkönige gefolgt, bis Xerxes 478 Babylon zerstörte (s. u.) und dem babylonischen Königtum auch in diesem Sinne ein Ende machte. Ein direkt entgegengesetztes Verfahren sehen wir in älterer Zeit nur _Tuklat-Ninib 1._ (um 1290*) und später _Sanherib_ (689 v. Chr.) einschlagen, die Babylonien bei mehr oder minder radikalem Vorgehen gegen die Hauptstadt selbst zur assyrischen Provinz herabwürdigten, indem sie sei es das Kultbild des _Marduk_ selbst (so Sanherib) sei es doch dessen wesentliche Insignien (so _Tuklat-Ninib_) nach Assur verbrachten. Bestand zu _Adadnirari's 3._ Zeiten zugleich mit der tatsächlichen Oberherrschaft über Babylonien der „Wunsch, diesem Verhältnis eine, im babylonischen Sinne, möglichst legitime Grundlage zu geben, so konnte die Einführung eines für das babylonische Staatsrecht maassgebenden Kultus als eine Förderung dieser Bestrebungen gelten.* Der Assyrerkönig wurde der lästigen Verpflichtung enthoben, alljährlich zu Neujahr nach Babylon zu pilgern, auch konnte dadurch die Begründung eines einheitlichen assyrisch-babylonischen Reiches, in dem der Nachdruck auf Assyrien lag, angebahnt und ausgedrückt werden. Dass _Adadnirari 3._ ein derartiges Ziel bewusst verfolgte, beweist auch die gleichfalls aus Kalach stammende rein genealogische Inschrift des Königs. Nachdem er seine Genealogie bis zu seinem Urgrossvater _Asur-nasir-abal 3._* (885-60) geführt hat, greift _Adadnirari 3._ hier, unter Übergehung selbst eines so bedeutenden Vorfahren wie _Tiglatpileser 1._ auf den weit älteren König _Tuklat-Ninib 1._ zurück. Man hat das verwunderlich gefunden, und Erklärungen versucht, die nicht befriedigen konnten.* Offenbar will _Adadnirari 3._ seine Abstammung von demjenigen Assyrerkönige besonders hervorheben der bisher allein, gleich ihm, Assyrien und Babylonien unter einem Scepter vollständig vereinigte. _Tuklat-Ninib_ hat nach der Eroberung Babylons 7 Jahre lang auch über Babylonien geherrscht.
 
 *) Der senkrechte Keil, auf den nach **Kings** Kollation deutliche Spuren des Zeichens _ilu_ „Gott“ folgen, bezeichnet entweder die Präposition _ana_ oder ist Determinativ vor männlichen Personennamen. Die Entscheidung bringt das Verbum in Z. 15. So lange man den Satz wegen des vermeintlichen „und“ auf zwei Personen zu deuten hatte, musste auf eine Pluralformel geschlossen und _ik-nu-n[i] iḳnûni_ ergänzt werden (so KB. 1.), womit freilich für die Deutung nichts anzufangen war. Aus letzterem Grunde ist auch die Ergänzung _ᵐ(ilu) B[a-u-aḫ-iddin]_ ausgeschlossen, ganz davon abgesehen, dass die Spuren des letzten erhaltenen Zeichens, wie **King** sie giebt, nicht wohl zu _ba_ passen würden. Der Senkrechte ist also nicht Personendeterminativ. Zu lesen und zu ergänzen ist vielmehr --- unter Ausnutzung der Spuren und z. T. unter Verwertung von Vorschlägen **H. Zimmerns** --- ¹⁴ _ᵐ(ilu) Adadnirari šar (mât) Aššur ana ili Na[bî u Marduk?]_ ¹⁵ _ik-nu-uš._ „_Adadnirari_, König von Assyrien beugte sich (_iknuš_) vor (dem Gotte) _Nebo_ [und _Marduk_(?)].“ Durch diesen Sachverhalt werden **Hommels**, ohne Kenntnis dieser neuen Kollation gezogene scharfsinnige Schlüsse in wesentlichen Teilen bestätigt. (A. a. O. S. 11: man vgl. _ik-nu-uš_(?)“ [_ana Marduk_?...]). In Zeile 15 a. E. mit KB. 1. vor _ma-du-[ti]_ „viele,“ _[dik]-tu_ „Kampf“ zu ergänzen, erschien von vornherein unwahrscheinlich, jetzt sprechen auch die Spuren bei **King** dagegen.
 
@@ -169,8 +162,84 @@ zogen: sie haben das babylonische Königtum in Personalunion mit dem
 
 *) Vgl. auch diese _Beiträge_, S. 32.
 
-assyrischen vereinigt. Ihrem Beispiele sind auch die Perserkönige ge- 
-folgt, bis Xerxes 478 Babylon zerstörte (s. u.) und dem babylonischen 
-Königtum auch in diesem Sinne ein Ende machte. Ein direkt entgegen- 
+Warum der Kult des _Nebo_, nicht der des _Marduk_ selbst, von _Adadnirari 3._ eingeführt wäre, würde sich durch die folgenden Erwägungen m. E. gleichfalls leicht erklären. Zwischen den Göttern _Bêl-Marduk_ von Babylon und _Assur_ resp. dem _Bêl_ von _Assur_ bestand eine, dem Gegensatz zwischen den durch sie repräsentierten und personifizierten Völkern und ihren Ländern entsprechende, Konkurrenz. Der Kult des _Marduk_ war nachweislich älter und, historisch wie religionsgeschichtlich, bedeutsamer, eine Tatsache, die durch die mehrfach zu beobachtenden Bemühungen der Assyrer, das Verhältnis umzukehren, nur bestätigt wird. _Ašurbanabal_, der auf Anordnung seines Vaters _Asarhaddon_ das von _Sanherib_ entführte Kultbild des Marduk nach dem neugegründeten Babylon zurückführt und seinen Bruder _Šamaššumukîn_ zum König in Babylon einsetzt (668 v. Chr.), spricht von „_Marduk_, der während der Regierung eines früheren Königs“ (nämlich seines Grossvaters _Sanherib_) vor dem Vater, der ihn erzeugt (dem Hauptgotte von Assur), sich in Assur niedergelassen hatte, und der nun wieder in Babylon einziehe.* Wollte man sich auf so wahrheitswidrige Behauptungen nicht einlassen und überhaupt feindseliges Vorgehen gegen Babylon und seinen Hauptgott vermeiden, andererseits aber auch dem Kult des _Marduk_ nicht noch eine weitere Stärkung und Verbreitung angedeihen lassen, so bot sich ein wirksamer Ausweg allerdings in der Einführung des _Nebo_-Kults. Denn das Kultbild des _Nebo_ wurde zum Neujahrsfest regelmässig in Prozession von Babylon nach Borsippa gebracht und _Nebo_ war dergestalt als Sohn des _Marduk_ gegenwärtig bei und indirekt beteiligt an der das babylonische Königtum bedingenden Ceremonie des „Handerfassens.“ Und wenn _Nebo_ in unserer Inschrift „Sohn von _Esaggil_“ genannt wird, so wird man das dem Bestreben zuschreiben dürfen, sein nahes Verhältnis zum babylonischen Hauptgottes im staatsrechtlichen Sinne zu betonen, ohne diesen selbst zu nennen. Ja, man ist noch weiter gegangen. Die Bezeichnung des _Nebo_ „als Sohn des Gottes _Nugimmud_“ d. h. des _Ea_ (_Aë_)* in der der Einführung des _Nebo_-Kults dienenden Inschrift (Z. 2) ist eine direkte Ketzerei, ein absichtlicher Verstoss gegen die offizielle babylonische Theologie, die _Nebo_ als Sohn des _Marduk_ (S. 261), und erst als Enkel des _Ea_, des für die Menschen direkt nicht erreichbaren, zu fern und hochstehenden allweisen Heilsgottes betrachtet. Man griff damit auf ältere und ursprünglichere Vorstellungen zurück, in die Zeit, da Babylon noch nicht die erste Stadt Babyloniens und der Herrschersitz des geeinten Reiches war.* Das geschah aus politischen, nicht aus antiquarischen Rücksichten. Man suchte _Marduk_ nach Möglichkeit auszuschalten, trug aber --- um völlige Klarheit, wie so oft in Theogonieen, unbekümmert --- Sorge, die Beziehung zum Tempel _Esaggil_, in welchem nun einmal das babylonische Königtum erworben wurde, zu wahren. Wir werden alsbald sehen, dass auch in anderen Fällen beabsichtigten oder notgedrungenen Verzichts auf eine Berücksichtigung _Bêl-Marduks_ der Kultus des _(Bêl-)Nebo_ an dessen Stelle trat.
+
+*) _Zwei Hauptprobleme_, S. 61 ff.
+
+*) **Winckler**, _Geschichte Babyloniens und Assyriens_, S. 120.
+
+*) Als Dritter seines Namens ist _Asurnâṣirabal_, der Vater _Salmanassar's 2._, erwiesen worden durch **Tiele**, ZA. 14. S. 392 f.
+
+*) Vgl. mit **Tiele**, _Bab.-ass. Geschichte_, S. 210: **Winckler**, ZA. 2. 387 ff.
+
+Wie die babylonischen Heiligtümer, so erhielt auch der neue assyrische Tempel den Namen _Ezida_: dem _Nabû_, der da wohnt in _Ezida_, dem in Kalach belegenen, gelten Bild und Inschrift. Auf die durch diese Verpflanzung des _Nebo_-Dienstes mit bedingte Gestaltung des staatsrechtlichen Verhältnisses Babyloniens zu Assyrien kommen wir noch zurück (S. 277). ---
+
+*) _Šamaššumukîn_, T. 1., S. 43.
+
+*) **Jastrow**, _Religion_, S. 230.
+
+*) Danach ist **Jastrow** a. a. O. S. 125 zu berichtigen, der angiebt: Da _Marduk_ als Sohn des _Ea_ bezeichnet wurde, „so haben sich keinerlei Anzeichen einer ursprünglichen Verwandtschaft des _Nabû_ zu _Ea_ erhalten.“
+
+_Sammuramat_ wird in keiner der direkt auf den Namen _Adadnirar's 3._ lautenden offiziellen Inschriften genannt. Die _Nebo_-Inschrift ist, wie schon die ständige Widmungsformel zeigt, mit Genehmigung des Königs gesetzt, also ein offiziöses Dokument. Man durfte daher einen Causalnexus zwischen der Nennung der _Sammuramat_ gerade in dieser Inschrift und der Einführung des _Nebo_-Dienstes mit einiger Wahrscheinlichkeit vermuten. Zur Voraussetzung eines solchen Zusammenhanges gezwungen werden wir aber erst durch Herodot, der sie als Beherrscherin von Babylon kennt.
+
+Über die Identität der Personen lässt, wie schon von **G. Rawlinson** und **Ed. Meyer** betont, Herodots Zeitangabe keinen Zweifel. Sie ist zwar keineswegs genau, stellt aber unverkennbar eine leidliche Annäherung dar. Die Bauten, die Herodot, der _Nitokris_ zuschreibt, rühren in Wahrheit von _Nebukadnezar_ her, und es ist eine von mir selbst wie von Anderen erkannte,* unten noch weiter zu erklärende Tatsache, dass die vermeintliche babylonische _Nitokris_ nur einem Missverständnis, einer Verstümmelung des Namens, persisch _Nabukadracara_, ihre Entstehung verdankt. Von _Nebukadnezar's 2._ Regierungs beginn (605) an --- also besonders günstig --- 5 herodoteische* Generationen aufwärts rechnend, kommen wir auf 772; die Mitte seiner Regierung zum Ausgangspunkt nehmend, auf ca. 755.
+
+Diese _Sammuramat_, der wir in Assyrien begegnen und die gleichzeitig Babylonien beherrscht, ist unter den von uns ermittelten Verhältnissen nur denkbar als Gemahlin eines Assyrerkönigs und zwar nur als Gemahlin _Adadnirari's 3._
+
+Für die von verschiedenen Seiten vertretene oder in Betracht gezogene Annahme, dass sie dessen Mutter, die Gemahlin _Šamši-Adads_ gewesen wäre, bleibt keinerlei Raum, seitdem wir wissen (S. 263), dass _Šamši-Adad_ bis zu seinem letzten Jahre mit Babylonien in Feindschaft gestanden hat und dass ihm _Adadnirari 3._ als sein offenbar grossjähriger Sohn gefolgt ist. Die Art wie _Bêl-tarṣi-iluma_ in der _Nebo_-Inschrift den _Adadnirari_ und die _Sammuramat_ als „seinen Herrn“ und „seine Herrin“ nebeneinander nennt, bestätigt diesen Schluss.* Als Witwe des 783 verstorbenen _Adadnirari_ könnte _Sammuramat_ 772 allenfalls sogar noch gelebt haben.
+
+*) **C. P. Tiele**, _Bab.-ass. Gesch._ 2. 423; **C. F. Lehmann**, _Berl. Phil. Wochenschr._ 1894, Sp. 272, 1898, 486, _Wochenschr. f. klass. Phil._ 1900, 962; **Nikel**, _Herodot und die Keilschriftforschung_ (1896) S. 46; **Ed. Meyer**, _Forschungen zur alten Geschichte_ 2. (1899) 478 f. Anm. 1.
+
+*) Hekataios rechnete die Generation m. E. zu 35 Jahren, s. _Hermes_ 35., S. 649.
+
+Wie aber kommt es, dass Herodot in Babylon und als für Babylon 
+speziell bedeutsam eine Herrscherin nennt, die in Wahrheit doch eine 
+Assyrerkönigin war, eine von den nicht wenigen babylonischen Prin- 
+zessinnen, denen das gleiche Loos zu Teil wurde?* Man halte uns nicht 
+entgegen, dass Herodot sie ja unter Bezugnahme auf die nicht zur Aus- 
+führung gelangten* [GREEK] nenne; sie könne also, auch nach 
+Herodots Information, eine assyrische Königin gewesen sein, die gleich- 
+zeitig auch über Babylonien geherrscht habe, und es sei somit nicht ein- 
+mal sicher, dass er sie als eine Babylonierin habe bezeichnen wollen. 
+Denn, wie ich bereits einmal ausgesprochen habe* und in anderem Zu- 
+sammenhange nochmals ausführlicher zu begründen gedenke,* über den 
+beabsichtigten Inhalt dieser [GREEK] macht man sich allgemein 
+eine ganz irrige Vorstellung. Für Herodot ist Babylon die Haupt- 
+stadt von „Assyrien,“ aus dem einfachen Grunde weil in der Satrapieen- 
+einteilung des Darius Assyrien und Babylonien eine Satrapie bildeten.*
+
+*) Dass _Sammuramat_ die Mutter _Adadnirari's 3._ gewesen sei, nahm namentlich **Hommel**, _Geschichte_ a. a. O. (vgl. **Tiele** u. **Maspero** a. a. O.) an, aber aus unzulässiger Rücksicht auf den Zug der Sage, dass _Semiramis_ beim Tode des _Ninos_ die Herrschaft für ihren unmündigen Sohn übernommen hätte. Hiervon ist **Hommel**, jetzt (_Ein neuer babyl. König_, S. 20 Anm. 22) zurückgekommen. --- Die sonst m. W. nicht zum zweiten Mal belegte Bezeichnung „Frau des Palastes“ findet sich merkwürdiger Weise in der bei **Goethe**, _Westöstlicher Divan_ (S. 362 der Hempelschen Ausgabe) wiedergegebenen Übersetzung des _Schreibens der Gemahlin des Kaisers von Persien an Ihre Majestät die Kaiserin Mutter aller Reussen_ zur Bezeichnung der Letzteren. Da es aber, wie mir auch **Noeldeke** und **F. C. Andreas** bestätigen, unerfindlich ist, wie dieser Ausdruck im Persischen gelautet haben sollte, so wird ein Irrtum des Übersetzers vorliegen.
+
+*) Ausser den S. 264 erwähnten Fällen ist namentlich hinzuweisen auf die Babylonierin, die _Assarhaddon_ (681-68) neben seiner assyrischen Gemahlin zur legitimen Frau erkor und die ihm den _Šamaššumukîn_ gebar, _Zwei Hauptprobleme_, S. 104 u. 209.
+
+*) Der jetzt wieder von **Ed. Meyer** vertretenen Ansicht (_Forschungen_ 2. 198 f. Anm. 1), dass die [GREEK] ein gesondertes Werk hätten bilden sollen, vermag ich mich, auch aus obigem Grunde, nicht anzuschliessen. Der Änderung im Plane des herodoteischen Werkes ist der beabsichtigte Exkurs über die babylonische Geschichte zum Opfer gefallen. Dieser Exkurs konnte sehr wohl in späteren Teilen des Werkes, z. B. gelegentlich des „von Zopyros“ bewältigten babylonischen Aufstandes seinen Platz finden.
+
+*) _Sitzungsber. archäol. Ges._ Nov. 1895 = _Wochenschr. f. klass. Phil._ 1896 No. 3 Sp. 84 f.
+
+*) In meinen _Forschungen zu Herodot und Hekataios_, in denen Vieles hier und andernorts nur Berührte zu seinem vollen Rechte kommen soll und deren ursprüngliches Manuskript demnächst bereits das horazische Alter erreicht haben wird.
+
+*) S. die Belege und meine Bemerkungen, _Wochenschr. f. klass. Phil._ 1900, Sp. 962 f. Anm. 6.
+
+Dieses Verhältnis hat zwar wahrscheinlich nur bis auf Xerxes* be- 
+standen. Aber Herodot bewegt sich nachweislich gerade in seinem Bericht 
+über Babylon und Babylonien vielfach in den Vorstellungen seiner Quellen, 
+der Logographen* aus der Zeit des Darius und der ersten Jahre seines 
+Nachfolgers. Herodots Nachrichten bilden hier ein sehr eigentümliches 
+Gemisch von Übernommenem und Selbstgeschautem, das jedoch der Haupt- 
+sache nach ganz wohl entwirrt und in seiner Entstehung verfolgt werden 
+kann. So behält er auch --- und nicht er allein* --- die für jene frühere 
+Zeit berechtigte Terminologie bei. Und deshalb bezeichnet er die 
+Nachrichten, die er in und über Babylon und Babylonien eingezogen 
+
+*) Die Veränderung wurde veranlasst durch den von mir nachgewiesenen zweiten Aufstand der Babylonier gegen Xerxes unter Führung des Usurpators _Tar(Ḫaz)-zi-a_, s. meinen Aufsatz „_Xerxes und die Babylonier_,“ _Wochenschr. f. klass. Phil._ 1900, Sp. 959 ff. und dazu **Ed. Meyer**, GA. 3., _Nachträge und Berichtigungen_ zu § 86. --- **Weissbach**, ZDMG. 55. (1901) S. 209, holt **Pinches**' unhaltbare Identifikation dieses _Tar(Ḫaz)-zi-a_ mit _Bar-zi-ia_ (-Smerdis) wieder hervor. Das Täfelchen ist datiert vom 11./8. des 1. Jahres, Bar-zi-ia aber ist im siebenten Monat seines ersten Jahres ermordet worden. **Weissbach** meint: „da aber diese Ermordung im fernen Medien erfolgt war, so ist es fraglich, ob die Kunde davon sogleich in alle Orte Babyloniens drang.“ Dieser an sich sehr fragwürdige Notbehelf verbot sich von vornherein: die Urkunden des Usurpators „_Nebukadnezar 3._,“ der dem _Barziia_ in Babylon folgte, beginnen, wie allbekannt und zudem ausdrücklich von mir hervorgehoben, bereits mit dem 17./7. des Antrittsjahres. Es bleibt bei dem zweiten Aufstand des _Tar(Ḫaz)-zi-ia_ 479/8, der wahrscheinlich Xerxes' Rückkehr aus Sardes veranlasste und die Zerstörung der Haupttempels _Esaggil_ sowie der äusseren Mauern von 480 Stadien Umfang und das Ende des nominell in Personalunion mit dem persischen weiterbestehenden babylonischen Königtums zur Folge hatte.
+
+*) Besonders Dionysios von Milet, der, wie überhaupt, so auch speziell für die babylonischen Nachrichten, als eine der das Selbstgesehene ergänzenden und beeinflussenden schriftlicher Quellen Herodots zu betrachten ist. Vgl. _Wochenschr. f. klass. Phil._ 1900, S. 964 Anm. 1 u. 6. Da Dionysios natürlich seinen von Herodot auch direkt verwerteten Landsmann Hekataios benutzt hat, so ergiebt sich schon hier ein ziemlich verwickeltes, aber für die babylonischen Nachrichten doch grossenteils entwirrbares Quellenverhältnis. An der Ansicht, dass Strabo 16., 1, 14. 20 Hekataios' Schilderung der babylonischen Sitten und Gebräuche nur sprachlich modifiziert wiedergiebt und dass uns so die hekatäische Vorlage der entsprechenden Abschnitte bei Herodot (1., 193 ff.) erhalten ist, halte ich (_Festschrift für Heinrich Kiepert_ S. 305 ff.) gegen **Eduard Meyer** (_Forschungen zur alten Geschichte_ 2., 233 Anm. 1) fest. Als eine Erweiterung und Überarbeitung der Daten Herodots nach den Anschauungen der späteren Zeit, können dieser und verwandte Abschnitte bei Strabo gerade nicht entstanden sein und verstanden werden. Er stimmt vielmehr „zu der Eigenart“ der Hekataios, „wie sie“ (so lies _Kiepert-Festschrift_ S. 307 Z. 10) „namentlich durch **Diels** festgestellt worden ist,“ und Dinge, die bei Herodot unverständlich sind erklären sich durch seine bei Strabo erhaltene Vorlage. Näheres demnächst. Vgl. vorderhand auch _Hermes_, 35. S. 649 u. Anm. 4.
+
+*) Auch Xenophon, der in der Anabasis Babylonien sehr wohl von Assyrien resp. „Syrien zwischen den Flüssen“ zu unterscheiden weiss, bezeichnet in der Cyropädie den von Cyrus bekriegten Beherrscher Babylons und Babyloniens als [GREEK]. Dies erklärt sich aus Benutzung einer älteren Quelle, der er u. A. auch die Kenntnis der historischen Rolle des Gobryas-_Ugbaru_ (sowie ferner beispielsweise der durchaus sachgemäss geschilderten Kämpfe zwischen Armeniern und Chaldern [vgl. _Verh. Berl. anthrop. Ges._ 1895, S. 585 ff. u. Anm. 1]), verdankt. Der für die Logographenzeit berechtigte Sprachgebrauch wirkt in der im Altertum bei den Späteren vielfach herrschenden Verwirrung der Begriffe nach.
+
+hat, als [GREEK]. Von Assyriens Geschichte im eigentlichen Sinne 
+weiss er so gut wie nichts weiter, als dass Niniveh zerstört worden ist.* 
+Nur in Ägypten hat er ausserdem vom beabsichtigten Angriffe des 
+Sanherib, der, vom ägyptischen Standpunkt ganz richtig, als [GREEK] bezeichnet wird (2. 141), Kunde erhalten. 
 
 ...
