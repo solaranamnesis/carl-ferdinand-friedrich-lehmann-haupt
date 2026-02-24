@@ -2,7 +2,7 @@
 
 ## Von C. F. Lehmann.
 
-#### _Klio_, B. 1.
+#### _Klio_, Band 1.
 
 ### Leipzig, 1901.
 
