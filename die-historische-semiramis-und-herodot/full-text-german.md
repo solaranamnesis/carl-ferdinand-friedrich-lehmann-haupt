@@ -2,6 +2,10 @@
 
 ## Von C. F. Lehmann.
 
+#### _Klio_, B. 1.
+
+### Leipzig, 1901.
+
 ---
 
 Dass der Name _Sammuramat_, den eine, _Adad-nirari* 3._ von Assyrien (812-783) nahestehende königliche Frau trägt, mit dem der _Semiramis_ identisch ist, weiss man seit Langem,* und ebenso alt sind die Versuche, diese _Sammuramat_ mit der _Semiramis_ der Sage, des ktesianischen Romans, in Verbindung zu bringen. Die „ganz auffallende“ Angabe Herodots (1. 184), der ungefähr um die Zeit, da jene _Sammuramat_ wirklich lebte, eine _Semiramis_ kennt, hat, wie vor ihm **Oppert** und **G. Rawlinson** und nach ihm **Hommel**,* **Ed. Meyer** * erneut hervorgehoben, dabei aber bestimmt in Abrede gestellt, dass die „Semiramis des Ktesias“ irgend etwas mit der herodoteischen zu tun habe.
