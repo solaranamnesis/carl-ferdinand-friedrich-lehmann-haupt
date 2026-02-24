@@ -2,6 +2,8 @@
 
 ## Von C. F. Lehmann.
 
+---
+
 Dass der Name _Sammuramat_, den eine, _Adad-nirari* 3._ von Assyrien (812-783) nahestehende königliche Frau trägt, mit dem der _Semiramis_ identisch ist, weiss man seit Langem,* und ebenso alt sind die Versuche, diese _Sammuramat_ mit der _Semiramis_ der Sage, des ktesianischen Romans, in Verbindung zu bringen. Die „ganz auffallende“ Angabe Herodots (1. 184), der ungefähr um die Zeit, da jene _Sammuramat_ wirklich lebte, eine _Semiramis_ kennt, hat, wie vor ihm **Oppert** und **G. Rawlinson** und nach ihm **Hommel**,* **Ed. Meyer** * erneut hervorgehoben, dabei aber bestimmt in Abrede gestellt, dass die „Semiramis des Ktesias“ irgend etwas mit der herodoteischen zu tun habe.
 
 *) _Adad-nirari_, nicht _Rammân-nirari_. Dass der ideographisch geschriebene Name des assyrischen Wettergottes, in Personennamen dieser Art und überhaupt, _Adad_ und nicht _Rammân_ zu lesen ist, zeigt die phonetische Schreibung _ᵐAšur-ni-ra-ri-ni ᵐA-da-di-ni-ra-ri-e-ḫi_ (K[önig]) (L[and]) _Aššur-ni-i_: „_Ašur-nirari_ (755-745 v. Chr. Vorgänger Tiglatpilesers 3.), Sohn _Adad-niraris_, König von Assyrien“ in der von unserer deutschen Expedition nach Armenien in der Kirche Surb Pog̊os zu Van aufgefundenen Inschrift _Sardurs_ 3. von Urarṭu-Chaldia. Siehe **W. Belck** und **C. F. Lehmann**, _Sitzungsberichte Berl. Ak., Phil hist. Kl._ 1899, 119 sub 6 (vgl. 1900, 624 sub 116) und _Nachrichten der K. Gesellschaft d. Wissensch. zu Göttingen_, [GN.], Phil. hist. Kl. 1899, S. 83 f. sub 5. Schon vorher war die Lesung _Adad_ von **Oppert** (_Zeitschrift für Assyriologie_ 9. (1894) 310 und mir ib. 10. (1895) S. 87) gefordert worden.
@@ -78,7 +80,7 @@ _Nabû_ (_Nebo_) ist ein babylonischer Gott. Hauptsächlich wurde er in _Borsipp
 
 *) S. die auf die Herstellung dieses Stufenturms bezügliche „Borsippa-Inschrift“ Nebukadnezars 2. (vgl. KB. 3., 2, S. 52 ff.) Col. 1. 27.
 
-*) _dupšar gimri_ z. B. in _Sargon's 2._ Cylinder-Inschrift Z. 59 (**Lyon**, _Keilschrifttexte Sargon's_ S. 36), in _Asurbanabal's grosser Thontafelinchrift L_⁴, Col. 1., 11 (**C. F. Lehmann**, _Šamaššumukîn_ Teil 2. S. 22).
+*) _dupšar gimri_ z. B. in _Sargon's 2._ Cylinder-Inschrift Z. 59 (**Lyon**, _Keilschrifttexte Sargon's_ S. 36), in _Asurbanabal's grosser Thontafelinchrift L_ ⁴, Col. 1., 11 (**C. F. Lehmann**, _Šamaššumukîn_ Teil 2. S. 22).
 
 *) Z. 22 der an Nebo gerichteten Inschrift auf einer in Babylon gefundenen kleinen Stele _Šamaššumukîn's_ (**Lehmann** a. a. O. l. c., Titelblatt und Teil 2. S. 10.)
 
@@ -126,7 +128,7 @@ Bei _Adadnirari 3._ aber tritt dessen alleiniges Auftreten sowohl wie die Gemein
 
 *) _istenis_, gemeinsam vgl. Anm. 1.
 
-*) Dass _Adadnirari 3._ selbst wahrscheinlich als Nachfolger _Bau-ah-iddin's_ in Dynastie H. der Königsliste figuriert habe, wurde von mir, _Zwei Hauptprobleme_, S. 128 Anm. 3, ausdrücklich betont. Dies ist von **Hommel**, in seiner neuen, mir gerade noch benutzbaren Schrift „_Ein neuer babylonischer König“ (Sitzungsber. der Königl. Böhm. Ges. d. W., Klasse für Philosophie, Geschichte und Philologie 1901, Nr. 5.), S. 10, der in der Einfügung des _Adad-nirari 3._ resp. der _Sammuramat_ einen Fortschritt gegen meine Aufstellungen erblickt, übersehen worden.
+*) Dass _Adadnirari 3._ selbst wahrscheinlich als Nachfolger _Bau-ah-iddin's_ in Dynastie H. der Königsliste figuriert habe, wurde von mir, _Zwei Hauptprobleme_, S. 128 Anm. 3, ausdrücklich betont. Dies ist von **Hommel**, in seiner neuen, mir gerade noch benutzbaren Schrift „_Ein neuer babylonischer König_“ (Sitzungsber. der Königl. Böhm. Ges. d. W., Klasse für Philosophie, Geschichte und Philologie 1901, Nr. 5.), S. 10, der in der Einfügung des _Adad-nirari 3._ resp. der _Sammuramat_ einen Fortschritt gegen meine Aufstellungen erblickt, übersehen worden.
 
 Die Beweiskette lässt sich aber vollständig schliessen indem ein Bedenken wegfällt, das sich aus dem bisher vorliegenden Wortlaut des zum Teil traurig verstümmelten, _Adadnirari 3._ betreffenden Passus der synchronistischen Geschichte ergab.
 
