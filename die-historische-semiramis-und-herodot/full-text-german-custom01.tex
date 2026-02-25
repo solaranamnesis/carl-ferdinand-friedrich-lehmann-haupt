@@ -18,7 +18,7 @@
 
 \usepackage[dvipsnames]{xcolor}
 \usepackage{eso-pic,graphicx}
-\usepackage[top=78mm, bottom=83mm, outer=98mm, inner=105mm, landscape]{geometry}
+\usepackage[top=78mm, bottom=75mm, outer=98mm, inner=105mm, landscape]{geometry}
 \setlength{\columnsep}{90pt}
 \usepackage{etoolbox}    % for \patchcmd
 \usepackage{sectsty}
@@ -58,9 +58,16 @@
 \begin{document}
 \bfseries
 \AddToShipoutPictureBG{\includegraphics[width=\paperwidth,height=\paperheight]{assyria1.jpg}}
-\renewcommand\thefootnote{\bfseries\tiny{\arabic{footnote}}}
+\renewcommand\thefootnote{\scriptsize\bfseries{\arabic{footnote}}}
 \let\oldfootnote\footnote
-    \renewcommand{\footnote}[1]{\oldfootnote{\tiny\bfseries#1}}
+    \renewcommand{\footnote}[1]{\oldfootnote{\bfseries\scriptsize#1}}
+\fancypagestyle{plain}{%
+\fancyhf{} % clear all header and footer fields
+\fancyfoot[C]{\bfseries\scriptsize\thepage} % except the center
+\renewcommand{\headrulewidth}{0pt}
+\renewcommand{\footrulewidth}{0pt}
+}
+\pagestyle{plain}
 \begin{titlepage}
     \centering                     % Center everything on the page
 
