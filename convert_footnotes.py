@@ -6,21 +6,34 @@ Markdown (GFM) footnote format.
 Input format (legacy):
   - Inline references: standalone * in body text
   - Definitions: lines starting with *) scattered throughout the body
+    (may span multiple lines; continuation lines immediately follow a
+    definition line and do not start with *)
 
 Output format (GFM):
   - Inline references become sequential [^1], [^2], ...
   - Definitions consolidated at the end as [^1]: content, [^2]: content, ...
+
+Usage:
+  python convert_footnotes.py [options]
+
+Options:
+  -i, --input FILE       Input Markdown file (default: see DEFAULT_INPUT_FILE)
+  -o, --output FILE      Output Markdown file (default: see DEFAULT_OUTPUT_FILE)
+  -n, --expected-count N Expected number of footnotes (default: 109)
+  -d, --debug            Print per-definition and per-inline-ref debug info
 """
 
+import argparse
 import os
-import re
 
-INPUT_FILE = "die-historische-semiramis-und-herodot/full-text-german.md"
-OUTPUT_FILE = "die-historische-semiramis-und-herodot/full-text-german-gfm.md"
-EXPECTED_FOOTNOTE_COUNT = 109
+DEFAULT_INPUT_FILE = "die-historische-semiramis-und-herodot/full-text-german.md"
+DEFAULT_OUTPUT_FILE = "die-historische-semiramis-und-herodot/full-text-german-gfm.md"
+DEFAULT_EXPECTED_FOOTNOTE_COUNT = 109
+
+_CONTEXT_CHARS = 40
 
 
-def replace_inline_refs(line, counter):
+def replace_inline_refs(line, counter, debug=False, orig_line_num=None):
     """Replace standalone * footnote markers in a body line with [^n] labels.
 
     Asterisks that are part of **bold** spans are skipped.  Asterisks inside
@@ -29,6 +42,10 @@ def replace_inline_refs(line, counter):
 
     Note: the source file does not use ***bold-italic*** markup, so combined
     triple-asterisk sequences are not handled here.
+
+    When *debug* is True and *orig_line_num* is provided, a debug line is
+    printed for every inline reference replaced, showing its 1-based original
+    line number and the surrounding context in the output string.
     """
     result = []
     i = 0
@@ -50,40 +67,84 @@ def replace_inline_refs(line, counter):
             if not prev_is_star and not next_is_star:
                 # Standalone * — this is a footnote reference
                 counter[0] += 1
-                result.append(f"[^{counter[0]}]")
+                ref_str = f"[^{counter[0]}]"
+                result.append(ref_str)
+                i += 1
+                if debug and orig_line_num is not None:
+                    # Build approximate full output for context extraction.
+                    # result already contains ref_str; remaining input is line[i:].
+                    joined = "".join(result)
+                    full = joined + line[i:]
+                    ref_pos = len(joined) - len(ref_str)
+                    ref_end = ref_pos + len(ref_str)
+                    ctx_start = max(0, ref_pos - _CONTEXT_CHARS)
+                    ctx_end = min(len(full), ref_end + _CONTEXT_CHARS)
+                    snippet = full[ctx_start:ctx_end]
+                    pre = "..." if ctx_start > 0 else ""
+                    suf = "..." if ctx_end < len(full) else ""
+                    print(
+                        f"[DEBUG] Inline ref #{counter[0]}"
+                        f"  (orig line {orig_line_num}):  {pre}{snippet}{suf}"
+                    )
             else:
                 result.append("*")
-            i += 1
+                i += 1
         else:
             result.append(line[i])
             i += 1
     return "".join(result)
 
 
-def convert_footnotes(input_path, output_path):
+def convert_footnotes(input_path, output_path, expected_count, debug=False):
     with open(input_path, encoding="utf-8") as f:
         lines = f.readlines()
 
     # ------------------------------------------------------------------
-    # Pass 1 — Extract footnote definitions and record which lines they are
+    # Pass 1 — Extract footnote definitions and record which lines they are.
+    # A definition starts on a line beginning with *).  It may continue on
+    # the immediately following line(s) as long as those lines are non-blank
+    # and do not themselves start with *) (which would begin a new definition).
     # ------------------------------------------------------------------
     footnote_definitions = []
     definition_line_indices = set()
+    # For debug: track which (0-based) line indices belong to each definition.
+    def_line_spans = []   # list of lists of 0-based indices
+
+    in_definition = False  # True while we may still see continuation lines
 
     for i, raw in enumerate(lines):
         stripped = raw.strip()
         if stripped.startswith("*)"):
-            # Remove the *) marker (with optional following space)
+            # New definition line — strip the *) marker
             content = stripped[2:].lstrip(" ")
             footnote_definitions.append(content)
             definition_line_indices.add(i)
+            def_line_spans.append([i])
+            in_definition = True
+        elif in_definition and stripped and not stripped.startswith("*)"):
+            # Continuation line: non-blank, immediately follows definition/continuation
+            footnote_definitions[-1] += " " + stripped
+            definition_line_indices.add(i)
+            def_line_spans[-1].append(i)
+        else:
+            # Blank line ends any active definition block
+            if not stripped:
+                in_definition = False
+
+    if debug:
+        for idx, (defn, span) in enumerate(zip(footnote_definitions, def_line_spans), 1):
+            if len(span) == 1:
+                loc = f"line {span[0] + 1}"
+            else:
+                loc = f"lines {span[0] + 1}-{span[-1] + 1}"
+            print(f"[DEBUG] Def #{idx}  ({loc}):  {defn}")
 
     print(f"Extracted footnote definitions: {len(footnote_definitions)}")
-    if len(footnote_definitions) != EXPECTED_FOOTNOTE_COUNT:
+    if len(footnote_definitions) != expected_count:
         print(
-            f"⚠ WARNING: Expected {EXPECTED_FOOTNOTE_COUNT} footnotes, "
+            f"⚠ WARNING: Expected {expected_count} footnotes, "
             f"found {len(footnote_definitions)}. "
-            "Verify the input file or update EXPECTED_FOOTNOTE_COUNT if intentional."
+            "Verify the input file or update --expected-count if intentional."
         )
 
     # ------------------------------------------------------------------
@@ -95,19 +156,40 @@ def convert_footnotes(input_path, output_path):
     for i, raw in enumerate(lines):
         if i in definition_line_indices:
             continue
-        processed = replace_inline_refs(raw.rstrip("\n"), inline_counter)
+        processed = replace_inline_refs(
+            raw.rstrip("\n"),
+            inline_counter,
+            debug=debug,
+            orig_line_num=i + 1,
+        )
         body_lines.append(processed)
 
     print(f"Inline footnote references replaced: {inline_counter[0]}")
 
-    if inline_counter[0] == len(footnote_definitions):
+    n_defs = len(footnote_definitions)
+    n_refs = inline_counter[0]
+
+    if n_refs == n_defs:
         print("✓ Counts match. Writing output...")
     else:
         print(
-            f"⚠ WARNING: Inline refs ({inline_counter[0]}) do not match "
-            f"definitions ({len(footnote_definitions)}). "
+            f"⚠ WARNING: Inline refs ({n_refs}) do not match "
+            f"definitions ({n_defs}). "
             "Writing output anyway for inspection..."
         )
+        if debug:
+            if n_defs > n_refs:
+                unmatched = list(range(n_refs + 1, n_defs + 1))
+                print(
+                    f"[DEBUG] Definition(s) with no matching inline ref: "
+                    + ", ".join(f"#{u}" for u in unmatched)
+                )
+            else:
+                unmatched = list(range(n_defs + 1, n_refs + 1))
+                print(
+                    f"[DEBUG] Inline ref(s) with no matching definition: "
+                    + ", ".join(f"#{u}" for u in unmatched)
+                )
 
     # ------------------------------------------------------------------
     # Post-process: collapse runs of consecutive blank lines left behind
@@ -142,8 +224,46 @@ def convert_footnotes(input_path, output_path):
     print(f"Output written to: {output_path}")
 
 
-if __name__ == "__main__":
+def _build_arg_parser():
+    parser = argparse.ArgumentParser(
+        description=(
+            "Convert legacy *) footnote markers in a Markdown file to "
+            "GitHub Flavored Markdown [^n] format."
+        )
+    )
     script_dir = os.path.dirname(os.path.abspath(__file__))
-    input_path = os.path.join(script_dir, INPUT_FILE)
-    output_path = os.path.join(script_dir, OUTPUT_FILE)
-    convert_footnotes(input_path, output_path)
+    parser.add_argument(
+        "-i", "--input",
+        default=os.path.join(script_dir, DEFAULT_INPUT_FILE),
+        metavar="FILE",
+        help=f"Input Markdown file (default: {DEFAULT_INPUT_FILE})",
+    )
+    parser.add_argument(
+        "-o", "--output",
+        default=os.path.join(script_dir, DEFAULT_OUTPUT_FILE),
+        metavar="FILE",
+        help=f"Output Markdown file (default: {DEFAULT_OUTPUT_FILE})",
+    )
+    parser.add_argument(
+        "-n", "--expected-count",
+        type=int,
+        default=DEFAULT_EXPECTED_FOOTNOTE_COUNT,
+        metavar="N",
+        help=f"Expected footnote count (default: {DEFAULT_EXPECTED_FOOTNOTE_COUNT})",
+    )
+    parser.add_argument(
+        "-d", "--debug",
+        action="store_true",
+        help="Print debug info for each definition and inline reference",
+    )
+    return parser
+
+
+if __name__ == "__main__":
+    args = _build_arg_parser().parse_args()
+    convert_footnotes(
+        input_path=args.input,
+        output_path=args.output,
+        expected_count=args.expected_count,
+        debug=args.debug,
+    )
