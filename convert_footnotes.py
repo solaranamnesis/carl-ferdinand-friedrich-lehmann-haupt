@@ -6,8 +6,8 @@ Markdown (GFM) footnote format.
 Input format (legacy):
   - Inline references: standalone * in body text
   - Definitions: lines starting with *) scattered throughout the body
-    (may span multiple lines; continuation lines immediately follow a
-    definition line and do not start with *)
+    (may continue on the immediately following non-blank line(s) only if
+    those lines contain no * character — bare citations like "S. 172.")
 
 Output format (GFM):
   - Inline references become sequential [^1], [^2], ...
@@ -121,15 +121,16 @@ def convert_footnotes(input_path, output_path, expected_count, debug=False):
             definition_line_indices.add(i)
             def_line_spans.append([i])
             in_definition = True
-        elif in_definition and stripped and not stripped.startswith("*)"):
-            # Continuation line: non-blank, immediately follows definition/continuation
+        elif in_definition and stripped and not stripped.startswith("*)") and "*" not in stripped:
+            # Continuation line: non-blank, no * character, immediately follows
+            # definition/continuation (real continuations are bare citations like
+            # "S. 172." and never contain *)
             footnote_definitions[-1] += " " + stripped
             definition_line_indices.add(i)
             def_line_spans[-1].append(i)
         else:
-            # Blank line ends any active definition block
-            if not stripped:
-                in_definition = False
+            # Blank line or body-text line ends any active definition block
+            in_definition = False
 
     if debug:
         for idx, (defn, span) in enumerate(zip(footnote_definitions, def_line_spans), 1):
