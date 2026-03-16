@@ -13,6 +13,10 @@ Output format (GFM):
   - Inline references become sequential [^1], [^2], ...
   - Definitions consolidated at the end as [^1]: content, [^2]: content, ...
 
+Note: single-asterisk italic spans (*word*) in the body are detected and
+preserved as-is; only a truly unmatched standalone * is treated as a footnote
+reference.
+
 Usage:
   python convert_footnotes.py [options]
 
@@ -40,6 +44,13 @@ def replace_inline_refs(line, counter, debug=False, orig_line_num=None):
     _italic_ spans are treated as footnote references (per the source
     convention, e.g. _Adad-nirari* 3._).
 
+    Single-asterisk italic spans (*word*) are detected and passed through
+    unchanged.  When a * is encountered that is not adjacent to another *,
+    the function looks ahead for a matching closing * with no interior
+    asterisks.  If found, the entire *...* span is appended as-is.  Only a
+    truly unmatched lone * (no closing * on the same line) is treated as a
+    footnote reference and replaced with [^n].
+
     Note: the source file does not use ***bold-italic*** markup, so combined
     triple-asterisk sequences are not handled here.
 
@@ -65,7 +76,14 @@ def replace_inline_refs(line, counter, debug=False, orig_line_num=None):
             prev_is_star = i > 0 and line[i - 1] == "*"
             next_is_star = i + 1 < n and line[i + 1] == "*"
             if not prev_is_star and not next_is_star:
-                # Standalone * — this is a footnote reference
+                # Check if this opens a *word* italic span
+                j = line.find("*", i + 1)
+                if j != -1 and j > i + 1 and "*" not in line[i + 1 : j]:
+                    # Italic span *...* — pass through unchanged
+                    result.append(line[i : j + 1])
+                    i = j + 1
+                    continue
+                # Truly standalone * — this is a footnote reference
                 counter[0] += 1
                 ref_str = f"[^{counter[0]}]"
                 result.append(ref_str)
