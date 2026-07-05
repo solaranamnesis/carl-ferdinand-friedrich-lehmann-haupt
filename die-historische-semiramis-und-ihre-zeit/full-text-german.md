@@ -939,3 +939,361 @@ den Keleks Schiffe zur Verwendung, deren Rumpi
 aus Tierhäuten besteht, die über ein Holzgestell oder
 Rohrgeflecht gespannt wurden (Abb. >. 49).
 
+Auch diese Fahrzeuge wurden, wie ein assy-
+risches Relief zeigt, gleich den Keleks zum Irans-
+port gebraucht, und in dieser Verwendung schildert
+sie Herodot als das größte Wunder, das ihm im
+Zweistromlande begegnet sei, mit einer Genauigkeit,
+die keinen Zweifel daran läßt, daß er sie aus eigener
+Anschauung kennt.
+
+Assyrisches Rundschiff, wie es auch von Herodot beschrieben wird.
+Zu Lande bildet heutzutage im nordwestlichen
+Persien das Dromedar das Haupttransportmittel. In
+diese oder in die weiter nach Südosten belegenen
+medischen Gebiete führt uns die Darstellung eines
+assyrischen Zeltlagers aus unsern Königlichen Museen,
+in der zwei zärtliche Kamele eine Hauptrolle spielen,
+während in einem Zelte einem ermüdet heimkehrenden
+Krieger beim Eintreten ein Trunk geboten und das
+Ruhelager bereitet wird (Abb. S. 50). Auch die gut
+beobachtete Verfolgung des flüchtigen Kamelreiters
+auf einer Reliefplatte im Britischen Museum wird
+häufig genug stattgefunden haben (Abb. 8. 50).
+Lehmann-Haupt, Semiramis. 4
+
+Solange der Sohn der Semiramis, größtenteils.
+unter der Leitung seiner Mutter, regierte, hielten sich
+
+Assur und Urartu in diesen Gebieten die Wage,
+wenngleich ein allmähliches Vordringen der Urartäer
+
+
+nicht zu verkennen ist und auch die Meder trotz
+allem allmählich an Boden gewannen.
+
+Das wichtigste Erfordernis für die Bildung
+der Sage, eine nachdrückliche und achtung-
+gebietende kriegerische Betätigung der
+Assyrer in der Zeit der geschichtlichen Semiramis
+ist somit vollauf erfüllt. Daß damals eine Frau die
+Geschicke des Reiches lenkte, mußte überall auf-
+fällig erscheinen und zur Legendenbildung auffordern.
+In verstärktem Maße war das der Fall, wenn etwa
+Semiramis gleich anderen Herrscherinnen des Alter-
+tums, so der Schwestergemahlin Ptolemaios’ IV. von
+Ägypten, ihren Gemahl bei seinen zahlreichen Kriegs-
+zügen ins Lager begleitete und durch ihre Gegen-
+wart den Kampfeseifer der Tuppen hob.
+
+Den entscheidenden Wegweiser für die Entsteh-
+ung der Semiramis-Legende aber gibt der Umstand,
+daß Semiramis und ihr lediglich nach Niniveh be-
+nannter Gemahl in der Sage als erste Herr-
+scher Assyriens gelten, während in Wahrheit zu
+ihrer Zeit das assyrische Königtum bereits auf ein
+mindestens achthundertjähriges Bestehen zurück-
+blicken konnte. Eine solche Vorstellung kann un- .
+möglich auf assyrischem oder babylonischem Boden
+entstanden sein, sondern nur bei einem Fremdvolke.
+Wenn ein Fremdvolk von primitiven Sitten zur Zeit, -
+da die Schammuramat an der Leitung der Geschicke
+Assyriens so bedeutsam beteiligt war, zum ersten
+Male mit den kriegerischen Assyrern in nähere Be-
+rührung kam und von dem Reichtum und der Pracht
+seiner Städte hörte, so erklärt es sich vollauf, daß
+
+diese Herrscherin als Begründerin der assyrischen
+Macht und Herrlichkeit betrachtet wurde. Das trifft
+in besonderem Maße zu für die Meder, deren erste
+nachdrücklichere Zusammenstöße mit den Assyrern,
+wie wir hörten, gerade unter Adadniraris Regierung
+fielen, d. h. in die Zeit, da in Wahrheit Semiramis,
+seine Mutter, die Geschicke des Reiches lenkte. Und
+
+.  medisch-persische Volksgesänge und Legenden
+waren es, wie betont, denen Ktesias seine Kunde
+der älteren Zeit vorwiegend entnahm. |
+
+. War aber aus der Lieblingsgemahlin eines Assyrer-
+
+| königs dergestalt die Reichsgründerin geworden,
+so ergab sich damit die weitere sagenhafte Entwick-
+lung von selbst.
+
+Die Lenkerin und Begründerin des kriegerischen
+Reiches verschmolz mit der Göttin Istar (Astarte), in
+deren Namen größtenteils die Kriegszüge der Assyrer
+erfolgten, und die wir auf einem zu Babylon in den
+Ausgrabungen der Deutschen Orient-Gesellschaft ge-
+fundenen Relief mit dem Bogen bewaffnet dargestellt
+sehen (Abk. S. 54). Ohnehin war diese Gottheit in den
+Gebieten östlich des Tigris lange vor dem Einrücken
+der Meder eine wohlbekannte Gestalt. Davon legt
+noch heute ein Felsrelief Zeugnis ab, das ein uralter
+vormedischer König dieser Kriegsgöttin, der Förderin
+seiner Siege, gewidmet hat. Die Frauengestalt, die
+einen unterworfenen Fürsten, dem eine ganze Anzahl
+seiner Untergebenen gebunden folgen, an einem
+durch die Lippe gezogenen Ringe herbeiführt (Abb.
+S. 53), konnte den Medern ohne weiteres als eine
+Darstellung der Semiramis gelten.
+
+Die Istar war aber gleichzeitig Kriegs- und
+Liebesgöttin. Im babylonischen Nationalepos weist
+dessen Held Gilgamisch ihre Werbungen ab und
+
+Felsrelief im Zagros-Gebirge:
+
+Der uralte Lulubäer-König Anubanini vor der Göttin Istar.
+wirft ihr dabei ihre Liebschaften und die Behand-
+lung, die sie ihren Liebhabern hat angedeihen lassen,
+vor: „Tammuz, dem Buhlen deiner Jugend, Jahr für
+
+Jahr bestimmtest du ihm Weinen. Als du den bunten
+Hirtenknaben-Vogel liebtest, schlugst du ihn und
+zerbracht seinen Flügel. Im Walde steht er und ruft:
+mein Flügel!“ ... „Als du den Hirten der Herde
+ liebtest, der dir beständig Salz hinschüttete, dir
+täglich Zicklein schlachtete, schlugst du ihn und ver-
+wandeltest ihn in einen wilden Hund. Es verjagen .
+
+Schamasch-resch-ußur zwischen Istar links und Adad rechts.
+Ihn seine eigenen Hirtenknaben, und seine Hunde
+beißen sein Fell.“ Ebenso schlimm ist es dem
+ — Ischullanu ergangen, „dem Gartner deines Vaters, der
+dir beständig Blumensträuße zuträgt, täglich deinen
+lisch strahlen macht“, und Gilgamisch schließt:
+„Auch mich willst du, mich lieben und jenen gleich
+machen.“ So wären aus der bloßen Verschmelzung
+mit der Istar auch die Liebesabenteuer, die der Se-
+miramis in der Sage zugeschrieben werden, erklär-
+
+lich, selbst wenn die geschichtliche Semiramis
+dazu etwa keinen Anlaß bot.
+Andrerseits ist es ein im alten Orient seit den
+ältesten babylonischen Zeiten immer wiederkehrender |
+- Zug, daß der Begründer einer Dynastie — man
+denke an Cyrus — im Verborgenen, von einem
+Hirten oder Gärtner erzogen, aufwächst; so ist es
+nur natürlich, daß dieses ständige Merkmal der
+Königsberufungssage nebst anderen verwandten Ele-
+menten auch der mythischen Semiramis anhaftet. —
+
+Das Quellgebiet des Euphrat und Tigris geriet
+um 600 v. Chr. unter medische Herrschaft, und
+gleichzeitig wanderten von Westen her die heutigen
+Armenier, die Urartäer unterwerfend und verdrän-
+gend, ein, um alsbald die medische mit der persischen
+Oberherrschaft zu vertauschen.
+
+Mit den Iraniern wird sich dann die Sage von
+der Semiramis auch nach Armenien ausgebreitet
+haben. Und wenn kurz vor Christi Geburt der Klein-
+asiate Strabo in seiner Geographie betont, daß außer-
+halb des Zweistromlandes in vielen Gebieten Asiens
+Bauten der Semiramis gezeigt werden, so wird er
+dabei, und nicht an letzter Stelle, auch Armenien im °
+Auge gehabt haben.
+
+Aber, von anderen Bedenken abgesehen, die
+Armenier wissen im übrigen sehr gut, daß ihre nun-
+mehrige Heimat einst gegen die Assyrer hatte ver-
+teidigt werden müssen, und sie rechnen den ersten
+Urartäerkönig den Gegner Salmanassars, Aram,
+unter ihre eigenen Nationalhelden.
+
+Sollte es da lediglich der werbenden Kraft und
+
+der Wucht, die gerade der Demiramissage innewohnt,
+
+zuzuschreiben sein, daß die Semiramis aus einer
+
+Feindin zur Förderin der großen Werke, die die
+Armenier in ihrer neuen Heimat vorfanden, erwuchs. .
+
+Viel leichter würde sich diese, die Tatsachen um-
+Henkelfigur: geflügelte Sonnenscheibe mit chaldischer Göttin
+| (Rückseite).
+kehrende Verschmelzung erklären, wenn wirklich
+ Frauenhand und Frauenklugheit auf urartäischer
+Deite an der Schöpfung der großartigen Felsen- und
+Wasserbauten mitgewirkt hätte.
+Und in der Tat, die Frau muß bei den Urartäern
+eine sehr bedeutende Rolle gespielt haben. Sonst
+würde nicht in der geflügelten Sonnenscheibe, die
+
+überall — bei den Ägyptern, von denen sie ausge-
+sangen ist, bei den Assyrern und bei den Persern —
+stets das Bild der obersten Gottheit trägt, bei den
+Urartäern eine Frau erscheinen. So wird die ge-
+flügelte Sonnenscheibe dargestellt in den Henkel-
+. fisuren großer Bronzegefäße, die mehrfach in Ar- .
+menien, aber auch in deutlicher Nachahmung dieser
+
+Chaldische Göttin in geflügelter Sonnenscheibe (Vorderansicht).
+
+urartäischen Vorbilder in Olympia und an anderen
+Stätten älterer griechischer Kultur zutage getreten sind.
+Die Haartracht der Göttin gleicht der der heutigen
+Georgierinnen, und die Georgier haben auch aus
+anderen Gründen als Reste jener kleinasiatischen UrT-
+bevölkerung zu gelten, der die Urartäer angehören.
+
+Und eine urartäische Königin mit ihrer Dienerin
+stellt nach der neuesten und besten Deutung jenes
+Goldplättchen in getriebener Arbeit dar, das — nicht
+
+viel kleiner als ein Fünfmarkstück — durch unsere
+Ausgrabungen auf dem Königssitze Toprakkaleh bei
+
+Van in einem jener bereits besprochenen riesigen
+Krüge des Magazins gefunden worden ist. Als Kunst-
+
+werk an sich, als Darstellung des urartäischen Frauen-
+
+typus und als die älteste aller Medaillen, die auf uns
+
+Goldmedaille (°/s natürlicher Größe):
+urartäische Königin mit ihrer Dienerin.
+
+(Zeichnung von Franz Frohse). .
+sekommen sind, darf diese Goldplatte ein besonderes
+Interesse beanspruchen. Sie ist mit der Mehrzahl
+der übrigen Ergebnisse unserer Ausgrabungen kürz-
+lich in den Besitz unserer Königlichen Museen über-
+gegangen.
+
+_ Vernahmen die Armenier bei ihrer Einwanderung
+in das Quellgebiet des Euphrat und des Tigris, dab
+
+bei den Chaldern, die sie verdrängten, damals und
+vor Zeiten, als jene großartigen Felsen- und Wasser-
+bauten entstanden, der Frau im Kultus, im Leben
+und in der Herrschaft eine überragende Rolle zuer-
+kannt wurde, so ergab sich nun die Einsetzung der
+_Semiramis, die bei dem herrschenden Volke, den
+Persern, als größte Herrscherin und Bauherrin der
+. Vorzeit gepriesen wurde, naturgemäß und unge-
+zwungen.
+So wäre die Entstehung der Semiramis-Sage bei
+den Medern und ihr Fortleben bei den heutigen
+-  Armeniern erklärt.
+
+Aber eine Frage harrt noch der Aufklärung.
+Woher stammte die Semiramis? Auch sie läßt sich
+befriedigend beantworten: Sie war eine Babylonierin.
+Herodot gedenkt ihrer als einer babylonischen Köni-
+sin in einer nüchternen, von sagenhaften Bei-
+mischungen völlig freien Weise, wiewohl ihm er-
+weislich auch Elemente der Semiramis-Sage zu Ohren
+gekommen sind. Er bestimmt ihre Lebenszeit unge-
+fähr richtig, und schreibt ihr zu, was jedem baby-
+lonischen Herrscher, der es ernst mit seinen Re-
+gierungspflichten nahm, oblag: erfolgreiche Bemüh-
+ungen um die Regulierung der Bewässerung. Eben-
+so hat der babylonische Priester Berossos, der
+— ein Zeitgenosse Alexanders des Großen und seiner
+Nachfolger — auf Grund seiner Kunde der heimischen
+Keilschriftdenkmäler eine babylonische Geschichte in
+griechischer Sprache schrieb, ihrer in seiner baby-
+lonischen Geschichte in der Reihe der Beherrscher
+Babyloniens gedacht und dabei gegen die von den
+
+Griechen unter Ktesias’ Führung verbreiteten Sagen, "
+soweit sie Babylonien betrafen, energisch Front ge-
+macht. u
+Weit deutlicher aber ergibt sich die babylonische
+Herkunft der Semiramis aus der Tatsache, daß auf ihre
+Veranlassung der babylonische Gott Nebo, der bis
+dahin in Assyrien ganz unbekannt war, dort einge-
+führt wurde. In einer chronikartigen assyrischen
+Liste heißt es zum Jahre 787 v. Chr.: „Nebo zieht
+in den neuen Tempel ein.“ Und zwar sollte er
+als oberster Gott gelten; denn die „für ıhr und Ihres
+Sohnes Leben* gesetzte Inschrift der Nebo-Statue
+(oben 8. 2f.) schließt: .
+„Wer immer du später sein mögest, auf Nebo ’
+verlasse dich, auf einen andern Gott vertraue nicht.“
+Scheinbar nur dem Kultus angehörig, war diese
+Maßregel in Wahrheit hochpolitischer Natur. Sie
+sollte die staatsrechtliche Vereinigung Babyloniens
+mit Assyrien anbahnen. Die Assyrer erstrebten seit
+langem die Herrschaft über das durch Fruchtbarkeit
+und Handelsbeziehungen gleichermaßen reiche Baby-
+lonien. Aber einer Einverleibung stellte sich der |
+lebhafte nationale Sinn der Babylonier entgegen. on
+Schon »Salmanassar Ill. hatte in babylonische
+Ihronwirren mit ordnender Hand erfolgreich einge-
+griffen, König Samsi-Adad zwei aufeinander folgende
+Babylonierkönige bekämpft, den zweiten nach Assy-
+rien entführt und keinen andern an seine Stelle
+gesetzt, sein Sohn Adadnirari die Gefangenen nach
+Babylonien zurückgeführt und „unter Freude und u
+Jubel“ gleich seinem Vater den babylonischen Göttern
+
+geopfert. Wer aber nicht mit heimkehrte, war die
+Semiramis, die, offenbar als babylonische Gefangene,
+zur Hauptgemahlin Samsi-Adads erhoben worden
+war. War sie königlichen Geblüts — was aus der
+Form ihres Namens wenigstens nicht ersichtlich
+ist —, so bedeutet die Vermählung den ersten
+Schritt zur Legitimierung der tatsächlichen Herr-
+schaft ihres Gatten über Babylonien.
+Selbst dann aber — und noch mehr, wenn sie
+keine Beziehungen zum babylonischen Herrscher-
+hause hatte — mußte der Vereinigung der beiden
+Reiche eine staatsrechtliche Grundlage gegeben
+werden.
+Babylonischer König konnte von Rechts wegen
+nur sein, wer zum Neujahrsfest im Nisan die Hände
+des Gottes Bel-Marduk in Babylon erfaßt hatte und
+diese Zeremonie alljährlich wiederholte. 0 sind die
+späteren Assyrerkönige, als erster Pulu (Phul), — der
+als assyrischer Usurpator den Ihronnamen Tiglatpileser
+(745— 727) annahm, während er als babylonischer
+König seinen ursprünglichen Namen beibehielt, und
+der daher mit beiden Namen im Alten Testament
+auftritt —, tatsächlich verfahren. Aber sollte ein ein-
+heitlich assyrisch -babylonisches Reich begründet
+werden, in dem der Nachdruck auf Assyrien lag,
+und der Assyrerkönig der demütigenden und lästigen
+Verpflichtung überhoben sein, alljährlich zu Neujahr
+nach Babylon zu pilgern, so war die Einführung
+eines für das babylonische Staatsrecht maßgebenden
+Kultus das zweckdienliche Auskunftsmittel. An Bel-
+Marduk selbst, den babylonischen Hauptgott, durfte
+
+man nicht denken; den älteren Bel in Assyrien ein-
+führen, hieß den eigenen Hauptgott, Bel-Assur, ent-
+thronen und das Ziel der Maßregel verfehlen. Aber
+Nebo — nach älterer, auch in der Semiramis-Inschrift
+der Nebo-Statue vertretener Auffassung der Bruder,
+nach späterer der Sohn des Marduk — wurde
+aus seinem Haupttempel in Borsippa, heute der
+Irümmerstätte Birs-Nimrud, alljährlich zum Neujahrs-
+fest nach Babylon gebracht und war so gegenwärtig
+bei und mittelbar beteiligt an der Krönungszere-
+monie des Handerfassens und ihrer jährlichen Wieder-
+holung. So bot die Einführung seines Kultes nach
+Assyrien den gegebenen und wirksamen Ausweg.
+Der Haupttempel des Nebo in Borsippa trug ebenso
+wie seine Kultkapelle im Tempel Esaggil den Namen
+Ezida: so wurde zum Zeichen der engen inneren
+Zusammengehörigkeit auch der neue Tempel in Kalach
+benannt.
+Zu alledem fügt es sich auf beste, daß in der
+neuen Inschrift von Assur (S. 7) der hinter Adadnirari
+genannte König Salmanassar nicht wie die beiden
+anderen den Titel „König von Assyrien, König des
+Alls“, sondern den uralten Titel der Babylonier- x
+könige, „König der vier Weltgegenden“, und nur
+diesen, erhält. Es ist klar, daß damit der be-
+treffende Salmanassar als Beherrscher auch Baby- :
+loniens nachdrücklich bezeichnet werden soll. War
+Salmanassar Ill. damit gemeint, so sollte der Schwieger-
+vater der Semiramis als der große Eroberer gekenn-
+zeichnet werden, der auch in die babylonischen Thron- \
+wirren nachdrücklich ordnend eingegriffen und so
+
+
