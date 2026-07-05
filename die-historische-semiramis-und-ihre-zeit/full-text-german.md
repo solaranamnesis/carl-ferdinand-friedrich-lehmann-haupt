@@ -628,3 +628,314 @@ Speer und Wurfspieß, im Gegensatz zu den mit
 Schwert und Bogen ausgestatteten Assyrern, aber
 in Übereinstimmung mit Xenophons späteren Schilde-
 rungen dieses Bergvolkes der Chalder, die er fälsch-
+
+Opfer vor dem Königsbild und den Feldzeichen (Palasttore von Balawat).
+lich mit dem Namen der südbabylonischen Chaldäer
+
+bezeichnet. Und ferner beobachten wir, daß auf urar-
+täischer Seite zwei verschiedene Rassen, eine hoch-
+gewachsene, den Assyrern ebenbürtige, und eine
+wesentlich kleinere kämpfen (Abb. >. 30).
+
+Das Feldzeichen — das schon die Babylonier
+der ältesten Zeit verwendeten — wurde auf diesen
+Kriegszügen mitgeführt: auch den Assyrern galt die
+Fahne als Symbol und Vertreter des Herrschers, bei
+dessen Bilde sie aufgepflanzt wird, und des Gottes,
+für den dieser und sie kämpften. Vor dem Königs-
+bild und dem Feldzeichen werden die Opfer darge-
+bracht.
+
+Wie dann Salmanassar III. die urartäische Haupt-
+
+stadt Arzaskun berennt und schließlich erstürmt,
+können uns die Reliefs aus dem Palaste seines
+Vaters veranschaulichen. Wir sehen die Belagerungs-
+maschine, den Widder, in Tätigkeit, deren Ansturm
+
+die Steine der Stadtmauer weichen müssen, bis eine
+Bresche von genügender Größe erzielt ist und der
+Sturm beginnen kann.
+
+u Belagerungsmaschine.
+Die Gefangenen und die Beute werden hinweg-
+geführt. Große Schwierigkeiten bereitet der Irans-
+port eines riesigen Tongefässes, das mit vollem Recht
+als den Urartäern eigentümlich von Salmanassar dar-
+gestellt wird. Denn genau solche riesigen Krüge
+fanden sich bei unseren Ausgrabungen in den Maga-
+zinen der letzten Residenz der Chalderkönige — der
+um 600 v. Chr. zerstörten Felsenburg Toprakkaleh bei
+
+Van.
+
+Auch reichliche Vorräte an Eisen, in dessen Be-
+arbeitung die Chalder die Lehrmeister der Assyrer
+wie der Griechen geworden sind, werden damals wie
+später in den Hauptstädten aufgespeichert und von
+den Assyrern als gute Beute mitgeführt worden sein.
+
+Mehr als 600 eiserne Geräte und Waffen — wiederum
+
+nur Lanzen und Pfeilspitzen, keine Schwerter — traten
+bei unseren Ausgrabungen auf Toprakkaleh zutage.
+Daneben werden — ganz wie später — der Palast
+des Herrschers und der Tempel des Gottes Chaldis
+schön ausgeführte Bronzearbeiten geliefert haben,
+wie denn bronzene Weiheschilde zum Bestande eines
+
+Transport eines urartäischen Tonkruges durch die ASSyrTer.
+solchen Tempels gehörten (Abb. S.34 oben). Von einem
+Herrscher-oder Götterthron aus Toprakkaleh haben sıch
+zahlreiche Bestandteile erhalten, so der geflügelte Stier,
+der eine der Stangen des Baldachins trug. Der Kranz aus
+umgeklappten Blättern als Ornament (Abb. 5.34 unten)
+ist dem Throne mit einem herrlichen, ebendort von uns
+geborgenen, jetzt im Hamburger Museum für Kunst
+
+und Gewerbe befindlichen Kandelaber gemeinsam,
+auf dessen in Bocksklauen auslaufenden Beinen
+kleine Keruben assyrischer Bildung ruhten. —
+Trotz mancher Erfolge war doch all dieser Kraft- _
+. aufwand Salmanassars II. vergeblich. Die Macht _
+
+König >Sardurs Kastell am Fuße der Felsenburg von Van.
+der Urartäer blieb im Wachsen, und Salmanassars
+Angriffe hatten nur den Erfolg, daß ihr Reich in der
+heutigen Stadt Van am gleichnamigen See ihren ge-
+eigneten Mittelpunkt fand. Schon Sardur, der Nachfolger
+von Salmanassars urartäischem Gegner Aram, legte
+am Fuße der Felsenburg von Van ein Kastell an,
+das Angriffen von Westen, über den See her, zu
+
+König Samsi-Adad, der Gemahl der Semiramis.
+unter Wasser gesetzt werden konnte. »Sardurs Sohn
+und Nachfolger Ispuinis hat die Verlegung der Re-
+sidrenz nach Van angebahnt, sein Sohn und Mit-
+regent Menuas, der bedeutendste der Herrscher
+
+von Ararat, sie durchgeführt. Mit ihnen hatte zu-
+nächst Samsi-Adad, der Gemahl der Semiramis
+(Abb. S. 36), später ihr Sohn Adadnirari zu kämpfen.
+Van, die Semiramisstadt, wie sie noch heute
+bei den Armeniern heißt, liegt, von wohlbewässerten
+
+Der höchste, westlichste Teil des Vanfelsens, der „Semiramis-Burg“, mit
+den türkischen Befestigungen.
+(Zeichnung von F. Frohse).
+Gärten umgeben, in einer fruchtbaren Ebene. Aus
+ihr erhebt sich nahe dem Ufer des Sees und für
+den, der sich der Stadt von Osten nähert, weithin
+sichtbar, ein isolierter Kalksteinrücken, der heute
+die türkische Zitadelle der Gouvernements-Haupt-
+stadt trägt.
+Auf diesem Felsrücken haben die Herrscher von
+Urartu zu Schammuramats Zeiten residiert. Ihre
+
+merkwürdigen Anlagen im lebendigen Felsen gelten
+heute als Schöpfungen der Semiramis.
+
+Der Vansee enthält salziges, borhaltiges Wasser.
+„An der Ostseite des Salzsees“, so berichtet die ar-
+menische Tradition, „habe Semiramis eine Stadt ge-
+gründet. Der Burgfelsen sei so hart, daß niemand
+
+mit Eisen darauf eine Furche zu ziehen vermöge.
+ — Dort.errichtete Semiramis Kapellen, Gemächer, Schatz-
+kammern und ausgedehnte Höhlen. Niemand weiß,
+wie die Ausführung so wunderbarer Werke möglich
+gewesen Ist.“
+
+Die Kammern mit den so geschilderten In-
+schriften, die außen an den geglätteten Felsen-
+wänden angebracht sind, hat Schulz wiederentdeckt;
+die bedeutendsten rühren her von Argistis I., Menuas’
+Sohn, gegen den vielleicht schon der Sohn, sicher
+der Enkel der Semiramis, und zwar nicht weniger
+als sechsmal, zu Felde gezogen ist (Abb. 8. 39).
+
+Erstaunlicher noch ist eine andere Anlage auf dem
+Zitadellenberge von Van, wo eine breite, aus dem
+lebendigen Felsen gehauene Treppe hinabführt zum
+
+Eingang in einen riesigen, künstlich zu beleuchtenden
+Felsensaal, der mit einer Anzahl sorgfältig gear-
+beiteter Nebengemächer als Sommerwohnung eines
+Chalderkönigs diente (Abb. S. 40).
+Vom Fuße des Vanfelsens setzt uns das Fern-
+objektiv in den Stand, eine anderthalb Stunden
+entfernte Stätte, Dorf und Felsenburg Aralesk, wo
+nach der Sage Semiramis ihren Geliebten Ara mit
+ — sehr anschaulich geschilderten — Küssen vom
+Tode zu erwecken suchte, aufzunehmen.
+
+Um in der Ebene, möglichst im Schutze des
+Vanfelsens, eine städtische Ansiedlung zu schaffen,
+
+Urartäische Anlage im lebendigen Felsen auf dem Vanfelsen.
+(Zeichnung von Franz Frohse).
+
+mußte, da das Wasser des Seees untrinkbar ist, eine
+Wasserleitung angelegt werden, der Semiramiskanal,
+der — ein Wunder der Wasserbaukunst — noch
+heute funktioniert und einem großen Teil der Ebene
+von Van Leben und Fruchtbarkeit spendet.
+Daß er vom Könige Menuas herrührt, also wirk-
+lich aus der Zeit der Semiramis, wenn auch keines-
+
+Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs Menuas.
+(Zeichnung von Lucy du Bois-Reymond).
+
+wegs von ihr herrührt, besagen zahlreiche In-
+schriften an dem cyklopischen Gemäuer des erhöhten
+Bettes, in dem dieser 70 km lange Aquädukt vielfach
+an den Rändern tief einschneidender Schluchten
+entlang- und herumgeführt werden mußte. sehr
+merkwürdig ist die Stelle, wo der Kanal in hölzernem,
+im Laufe der Jahrhunderte wohl mehrfach erneuertem
+Bette über den Fluß Choschab, der von Osten her
+in den Vansee fällt, hinübergeleitet wird (Abb. 8.42).
+
+Im oberen Choschab-Thal erhebt sich eine male-
+rische Feste, die heute die Ruinen eines Kurden-
+schlosses trägt, das 360 Zimmer enthalten und dessen
+Besitzer über 360 Dörfer geboten haben soll, —
+einer von vielen Belegen für das Fortleben der für
+unsere Zeit und Kreisteilung maßgebenden altbaby-
+lonischen Sechziger-Rechnung im Volksmunde des
+
+Überführung des ‚„Semiramis-Kanals“ über den Choschab.
+(Zeichnung von Franz Frohse).
+heutigen Orients. An dieser ihrer Feste vorbei ge-
+langten Menuas und Argistis in die fruchtbaren Ge-
+biete westlich des Urmiasees, um die sich die Kämpfe
+zwischen Urartu und Assyrien zu Semiramis Zeiten.
+hauptsächlich drehten. Die gegebene urartäische
+Zwingburg für diese Gegend war die „Taubenfeste“
+die — ein orientalisches Vineta — die Stätte einer
+in den See versunkenen Stadt bezeichnen soll, und
+die im Mittelalter tatsächlich die Schatzkammer
+
+des mächtigen Mongolenkaisers Hulagu-Chan ge-
+wesen Ist.
+
+Bis sie aber dorthin gelangten, waren auf viel-
+fach schwierigen Märschen die Gebiete diesseits der
+persisch-türkischen Grenze zu durchkreuzen und
+schließlich die Grenzgebirge selbst zu übersteigen.
+Auf der Höhe des Passes, der von Osten in das
+
+Guertschin-kalah, die ‚„Taubenfeste‘“ im Urmia-See.
+(Zeichnung von Lucy du Bois-Reymond).
+
+südliche Seegebiet führt, steht noch heute, so wie
+sie vor 2700 Jahren von Ispuinis und Menuas er-
+richtet wurde, eine Stele, Kel-i-schin, „der grüne
+Pfeiler“, wie ihn die Kurden nennen; sie hat dem
+Berge und dem Passe selbst den Namen gegeben.
+
+Von der älteren und jüngeren Sage umsponnen —
+die Zuweisung an die Semiramis fehlt auch hier
+
+nicht —, gibt dieser Pfeiler mit seiner zweisprachigen
+urartäisch-assyrischen Inschrift noch heute Kunde
+aus den Zeiten der Semiramis. Eine unheimliche _
+Stätte, im Winter durch gewaltige, plötzlich ent-
+stehende Schneewehen gefährdet, im Sommer be-
+
+_ rüchtigt durch die Überfälle der in diesen Grenz-
+gebieten besonders zügellosen, räuberischen Kurden,
+hat die »Stele kaum einen Besucher gesehen, der
+nicht bei einem auch nur flüchtigen Aufenthalte hier
+mit Naturgewalten oder den Bewohnern der Nachbar-
+schaft ein ernsteres Abenteuer zu bestehen gehabt
+
+hätte. Ich darf bei den eigenen Erlebnissen und
+Ergebnissen unserer Expedition hier nicht verweilen,
+sondern muß auf deren Schilderung im achten Ka-
+pitel meines Reisewerkes verweisen.
+Mit Hilfe der persischen Kurden aus dem Dorfe
+Haek, bei denen wir zu Gaste waren, gelang es uns
+während eines zweimaligen Besuches, die bisher nur
+aus schnell gefertigten Abklatschen bekannten In-
+schriften desKelischin im Original zu prüfen (Abb.S. 46).
+
+Die Stele ist gleich andern urartäischen Schrift-
+denkmälern dieser Art mittels eines Zapfens in einen
+über den Boden hinausragenden quadratischen wuch-
+
+tigen Sockel eingelassen (Abb. S.45). Ganz das gleiche
+ist in Assur der Fall, und da die dortige Stelenreihe
+weit über die urartäische Zeit zurückgeht, so erkennen
+wir, dab die Urartäer mit der schrift (S. 12) auch
+die Form der Urkunden in wesentlichen Zügen von
+den Assyrern übernommen haben.
+
+Die Kelischin-Stele war das letzte Monument,
+
+das Schulz, der Pfadfinder auf diesem Forschungs-
+
+Kel-i-giaur: verstümmelte Stele mit zweisprachiger, urartäisch-
+assyrischer Inschrift, auf Sockel in ihrer ursprünglichen Stellung
+unweit des Kelischin.
+
+(Zeichnung von Helfriede Haupt).
+
+gebiete, besuchte; wenige Tage später fiel er von
+der Hand eines räuberischen Kurdenhäuptlings.
+
+Auf den ersten Blick keineswegs unsympathisch,
+
+läßt das Antlitz der Kurden doch zumeist alsbald
+einen lauernden, auf Blutgier und Grausamkeit deu-
+tenden Zug erkennen, ob sie nun den persisch-
+
+türkischen Grenzgebieten oder beispielsweise den
+Gebirgen südlich des Vansees angehören, wo ich
+
+der Schlimmsten einen — Schäkir-Agha —, den
+
+Leiter der Armenier-Metzeleien in Van im Jahre
+
+1895, mit seiner Sippe kennen lernte.
+
+Persischer Kurde vom Stamme Deibokri
+
+(Umgegend von Sautschbulaq südlich des
+
+Urmia-Sees). |
+Da, wo die vom Kelischin nach Osten herab-
+
+führende Straße in die Ebene einmündet, liegt unweit .
+Haek das Kurdendorf Singa, überragt von einer statt-
+lichen Feste (Abb. 8.48). Sieheißt Kiz-kalah, dieMädchen-
+burg, weil sie von einem Mädchen in einer Nacht
+erbaut sein solle Dieser Name und diese Legende
+finden sich in diesen Gebieten wiederholt für An-
+
+lagen aus unvordenklicher Zeit. Bedenkt man, daß
+schon im griechischen Ninos-Roman aus der Semira-
+mis die namenlose Jungfrau geworden war (S. 11),
+so ist der Schluß nicht abzuweisen, daß dieses
+Mädchen eine letzte verblaßte Gestalt darstellt, in
+der die große Bauherrin des alten Orients noch
+heute bei den Mohammedanern fortlebt. In der Tat
+
+Dorf Singa mit der Mädchenburg.
+
+(Zeichnung von Lucy du Bois-Reymond).
+ist dieser Burghügel ein Tell, das heißt ein Ruinen-
+hügel, dessen Kern die durch Ziegel erbaute und
+steil gebaute Plattform einer assyrischen Feste bildet;
+die Mädchenburg* von Singa ist ohne Zweifel ein
+ Sperrfort, das zu Semiramis Zeiten von den Assyrern
+segen die über den Kelischin zum Urmiasee vor-
+
+dringenden Urartäer errichtet ward. —
+
+Auf dem Urmiasee hat schon Salmanassar IlIl.,
+den Anwohnern Kämpfe geliefert. Dabei kamen neben
+den Keleks Schiffe zur Verwendung, deren Rumpi
+aus Tierhäuten besteht, die über ein Holzgestell oder
+Rohrgeflecht gespannt wurden (Abb. >. 49).
+
