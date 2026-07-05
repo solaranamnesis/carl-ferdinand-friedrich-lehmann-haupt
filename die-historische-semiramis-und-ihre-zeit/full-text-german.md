@@ -24,11 +24,11 @@ Georg Friedrich Grotefend und die Erschließung der
 inschriftlichen Schätze des Zweistromlandes lehrten uns
 die "Anfänge der Geschichte Babyloniens und des
 von ihm erst nachträglich sich ablösenden Assyrien
-kennen: für eine Reichseründerin Semiramis fand
+kennen: für eine Reichsgründerin Semiramis fand
 
 sich dort nirgends eine Spur noch Raum. So hätte
 man denken können, daß, was Ktesias, der als Leib-
-arzt des persischen Großkönigs Artaxerxes Il. um
+arzt des persischen Großkönigs Artaxerxes II. um
 400 v. Chr. in Susa lebte, über die Semiramis be-
 richtete, Sage, nichts als Sage sei, die er der ira-
 nischen Volksüberlieferung — ‘den Gesängen und
@@ -44,7 +44,7 @@ mahlin eines andern vom Könige Ninos zum Weibe
 begehrt wurde — göttliche Verehrung zuteil ge-
 worden. u
 Aber auch der Gedanke, daß es sich um eine
-reine Sagengestal, um eine historisch in keiner
+reine Sagengestalt, um eine historisch in keiner
 Weise greifbare Persönlichkeit handle, mußte, ehe er
 noch Wurzel fassen konnte, aufgegeben werden.
 
@@ -56,7 +56,7 @@ gelegen — auch im Alten Testamente genannt wird.
 Schon ein Jahrzehnt nach dem Beginn der Ausgra-
 
 bungen wurde dort eine auf mehreren Statuen des Gottes
-Nebo (Abk. S. 3) gleichlautend wiederholte Inschrift
+Nebo (Abb. S. 3) gleichlautend wiederholte Inschrift
 gefunden — dem Gotte geweiht vom Statthalter von
 Kalach für das Leben Adadniraris (um 800 v. Chr.)
 
@@ -89,7 +89,7 @@ und Großwürdenträgern auf. Meist zeigen sie die
 Form viereckiger Steinpfeilern, die ihrer Anlage nach
 niemals ein Bildwerk getragen haben können. Das
 zu Beginn ihrer Inschriften stets erscheinende assy-
-rısche Wort, das man bisher als Bildsäule auffaßte,
+rische Wort, das man bisher als Bildsäule auffaßte,
 wird daher auch die Bedeutung Denksäule gehabt
 haben. Diese Inschrift ist jedesmal im oberen Teil
 der Vorderseite in einer vertieften Nische von der
@@ -105,7 +105,7 @@ von Assur trägt nun die folgende Inschrift:
 „Säule der Schammuramat,
 Der Frau des Palastes Samsi-Adads,
 Des Königs der Welt, Königs von Assyrien;
-Ze Der Mutter Adadniraris,
+Der Mutter Adadniraris,
 Des Königs der Welt, Königs von Assyrien;
 Der ...... des Sulmanuasaridu, Königs
 Der vier Weltgegenden.”
@@ -129,7 +129,7 @@ wie der Nachfolger des Sohnes, Salmanassar IV. Die
 diesem Namen vorausgehenden Keilschriftgruppen
 sind nicht völlig klar. Die Königin wird durch sie
 entweder als Großmutter oder Vormündin des jün-
-geren »Malmannassar oder aber, und wohl wahr-
+geren Salmanassar oder aber, und wohl wahr-
 scheinlicher, als Schwiegertochter des älteren ge-
 nannt sein.
 
@@ -166,9 +166,9 @@ vater, hat seine Waffen im Süden nach Babylonien,
 
 im Westen gegen Damaskus, Hamat und deren Ver-
 bündete, nicht minder auch nach Osten und Norden
-getragen, wie uns denn der bekannte Obelisk »al-
+getragen, wie uns denn der bekannte Obelisk Sal-
 
-_ manassars aus Kalach-Nimrud die Erfolge, die der
+manassars aus Kalach-Nimrud die Erfolge, die der
 Herrscher in allen Himmelsrichtungen errungen hatte,
 in den Tributen und Geschenken der unterworfenen
 und bekämpften Völker — darunter dem des Jehu
@@ -274,7 +274,7 @@ So sind wir über die urartäisch-assyrischen Be-
 ziehungen zur Zeit der Semiramis besonders ausgiebig
 unterrichtet. Da es nun an gleichzeitigen medischen
 Nachrichten, auf die wir für unsre Betrachtung noch
-orößeren Wert zu legen hätten, völlig mangelt, so
+größeren Wert zu legen hätten, völlig mangelt, so
 bleiben wir, wenn wir uns die kampferfüllte Zeit der
 Semiramis möglichst lebendig vor Augen führen wollen,
 darauf angewiesen, die kriegerischen Verwicklungen
@@ -288,8 +288,8 @@ als ein Opfer wissenschaftlichen Forschungsdranges
 und Wagemutes sein Leben gelassen hat, die Blicke
 in diese Richtung zwingt.
 
-Lange ehe die französischen und englischen-Aus-
-orabungen im Zweistromlande begonnen wurden, hat
+Lange ehe die französischen und englischen Aus-
+grabungen im Zweistromlande begonnen wurden, hat
 
 _ ein junger hessischer Gelehrter, Professor Eduard
 Schulz, auf Anregung Karl Ritters Armenien be-
@@ -316,7 +316,7 @@ Keilinschriften entdeckte, in der Nähe einer nach
 urartäischer Weise in den lebendigen Fels gehauenen
 Festungsanlage mit einem künstlichen Durchblick nach
 dem benachbarten wichtigen Euphrat - Übergang.
-(Abb. 8. 15).
+(Abb. S. 15).
 
 Ich selbst aber bin in der glücklichen Lage, die
 Schauplätze dieser Züge und Kämpfe und mancher
@@ -334,7 +334,7 @@ beiden Tigrisquellströme, — des Ost-Tigris oder
 Bohtan-su und des bei Argana zwischen Charput und
 Dijarbekir entspringenden West-Tigris — und ferner das
 
-Blick in das Tal des Bohtau-su (Kentrites), südlich von Söört.
+Blick in das Tal des Bohtan-su (Kentrites), südlich von Söört.
 (Zeichnung von Franz Frohse). .
 Bei Djezireh, in dessen Nachbarschaft der Tigris
 überschritten wird, blicken wir nordwärts zum Djebel
@@ -346,7 +346,7 @@ dem persischen Golfe nach Norden getrieben, einst-
 mals haften geblieben ist. Eine großartige Brücken-
 ruine aus mongolischer oder persischer Zeit gibt heute
 einen eindrucksvollen Rahmen für das herrliche Land-
-schaftsbild ab. (Abb. 8.1). .
+schaftsbild ab. (Abb. S. 1). .
 Den Ost-Tigris südlich von Söört zu überschreiten,
 erweist sich wegen der Steilheit der Uferberge zu
 beiden Seiten, zwischen denen der Strom in tiefer
@@ -387,10 +387,10 @@ ein Begriff geben. Bei und nach Sonnenuntergang
 lagen hoch über dem West-Tigris die Wolken in Rot-
 violett und Gold getaucht; der ganze Strom, wie er
 vor Till vorbeifließt, war rosig gefärbt, so daß das
-nicht mehr beleuchtete rote Wasser des Bothan-su
+nicht mehr beleuchtete rote Wasser des Bohtan-su
 dagegen fahl und farblos erschien. Das im Osten
 lagernde schwere Gewölk erstrahlte mit den Bergen
-darunter in tieflunklem Purpurglanze.
+darunter in tiefdunklem Purpurglanze.
 
 Der West-Tigris ist von Dijarbekir ab schiffbar.
 Von Till aus sah ich zwei mit Säcken schwer beladene
@@ -489,7 +489,7 @@ Im Gegensatz zu Tiglatpileser I, seinem einzigen
 erweislichen Vorgänger an dieser Stätte, behauptet
 
 Felsrelief und Inschrift Tiglatpilesers I. am Ausgange des Tigristunnels.
-Salmanassar Ill. in jenen — aus seinem 15. Regierungs-
+Salmanassar III. in jenen — aus seinem 15. Regierungs-
 jahre stammenden — Inschriften der Tigrishöhle, sie
 seien an der Quelle des Tigris angebracht. Dabei
 ist ihm aber nachweislich nicht wohl zumute gewesen.
@@ -578,7 +578,7 @@ entziehen.
 
 Die Tatsache aber, daß es sich hier um einen
 von einem Tigrisarm durchflossenen Tunnel, nicht um
-eine Quellgrotte handelte, war Salmanassar Ill. be-
+eine Quellgrotte handelte, war Salmanassar III. be-
 kannt. Denn zu eben dem Regierungsjahre, an dem
 er die Stätte besuchte und seine Inschriften dort an-
 brachte, berichten seine in Assyrien niederge-
@@ -605,7 +605,7 @@ Anschauungen, die wir bei den klassischen Autoren
 Rolle.
 
 Kampf zwischen Assyrern und Urartäern. (Palasttore von Balawat.).
-“ Der Grund, warum der Schwiegervater der >e-
+Der Grund, warum der Schwiegervater der Se-
 miramis wider besseres Wissen den Ausgang des
 Tunnels zur Tigrisquelle stempelt, ist leicht gefunden.
 Salmanassar III. war im Norden und Nordwesten
@@ -618,11 +618,11 @@ gegangen, und so mußte der weit östlichere Tigris-
 tunnel-Ausgang an ihre Stelle treten. —
 . Die schwierigen Gebirgsmärsche, die die Assyrer
 vom Tigristunnel zum Euphrat und weiter durch das
-i armenische Hochland führten, haben sie uns ın
+i armenische Hochland führten, haben sie uns in
 Worten wiederholt geschildert, und gelegentlich, wenn
 auch recht unbehilflich, im Bilde (s. S. 29) dargestellt.
 Durch die Torbeschläge von Balawat, die uns
-Assyrer und Uratäer im Handgemenge zeigen, lernen
+Assyrer und Urartäer im Handgemenge zeigen, lernen
 wir die Bewaffnung der letzteren kennen, — nur
 Speer und Wurfspieß, im Gegensatz zu den mit
 Schwert und Bogen ausgestatteten Assyrern, aber
@@ -635,7 +635,7 @@ lich mit dem Namen der südbabylonischen Chaldäer
 bezeichnet. Und ferner beobachten wir, daß auf urar-
 täischer Seite zwei verschiedene Rassen, eine hoch-
 gewachsene, den Assyrern ebenbürtige, und eine
-wesentlich kleinere kämpfen (Abb. >. 30).
+wesentlich kleinere kämpfen (Abb. S. 30).
 
 Das Feldzeichen — das schon die Babylonier
 der ältesten Zeit verwendeten — wurde auf diesen
@@ -659,7 +659,7 @@ Sturm beginnen kann.
 
 u Belagerungsmaschine.
 Die Gefangenen und die Beute werden hinweg-
-geführt. Große Schwierigkeiten bereitet der Irans-
+geführt. Große Schwierigkeiten bereitet der Trans-
 port eines riesigen Tongefässes, das mit vollem Recht
 als den Urartäern eigentümlich von Salmanassar dar-
 gestellt wird. Denn genau solche riesigen Krüge
@@ -684,12 +684,12 @@ des Herrschers und der Tempel des Gottes Chaldis
 schön ausgeführte Bronzearbeiten geliefert haben,
 wie denn bronzene Weiheschilde zum Bestande eines
 
-Transport eines urartäischen Tonkruges durch die ASSyrTer.
+Transport eines urartäischen Tonkruges durch die Assyrer.
 solchen Tempels gehörten (Abb. S.34 oben). Von einem
-Herrscher-oder Götterthron aus Toprakkaleh haben sıch
+Herrscher-oder Götterthron aus Toprakkaleh haben sich
 zahlreiche Bestandteile erhalten, so der geflügelte Stier,
 der eine der Stangen des Baldachins trug. Der Kranz aus
-umgeklappten Blättern als Ornament (Abb. 5.34 unten)
+umgeklappten Blättern als Ornament (Abb. S. 34 unten)
 ist dem Throne mit einem herrlichen, ebendort von uns
 geborgenen, jetzt im Hamburger Museum für Kunst
 
@@ -699,7 +699,7 @@ kleine Keruben assyrischer Bildung ruhten. —
 Trotz mancher Erfolge war doch all dieser Kraft- _
 . aufwand Salmanassars II. vergeblich. Die Macht _
 
-König >Sardurs Kastell am Fuße der Felsenburg von Van.
+König Sardurs Kastell am Fuße der Felsenburg von Van.
 der Urartäer blieb im Wachsen, und Salmanassars
 Angriffe hatten nur den Erfolg, daß ihr Reich in der
 heutigen Stadt Van am gleichnamigen See ihren ge-
@@ -709,9 +709,9 @@ am Fuße der Felsenburg von Van ein Kastell an,
 das Angriffen von Westen, über den See her, zu
 
 König Samsi-Adad, der Gemahl der Semiramis.
-unter Wasser gesetzt werden konnte. »Sardurs Sohn
+unter Wasser gesetzt werden konnte. Sardurs Sohn
 und Nachfolger Ispuinis hat die Verlegung der Re-
-sidrenz nach Van angebahnt, sein Sohn und Mit-
+sidenz nach Van angebahnt, sein Sohn und Mit-
 regent Menuas, der bedeutendste der Herrscher
 
 von Ararat, sie durchgeführt. Mit ihnen hatte zu-
@@ -744,7 +744,7 @@ mit Eisen darauf eine Furche zu ziehen vermöge.
  — Dort.errichtete Semiramis Kapellen, Gemächer, Schatz-
 kammern und ausgedehnte Höhlen. Niemand weiß,
 wie die Ausführung so wunderbarer Werke möglich
-gewesen Ist.“
+gewesen ist.“
 
 Die Kammern mit den so geschilderten In-
 schriften, die außen an den geglätteten Felsen-
@@ -752,7 +752,7 @@ wänden angebracht sind, hat Schulz wiederentdeckt;
 die bedeutendsten rühren her von Argistis I., Menuas’
 Sohn, gegen den vielleicht schon der Sohn, sicher
 der Enkel der Semiramis, und zwar nicht weniger
-als sechsmal, zu Felde gezogen ist (Abb. 8. 39).
+als sechsmal, zu Felde gezogen ist (Abb. S. 39).
 
 Erstaunlicher noch ist eine andere Anlage auf dem
 Zitadellenberge von Van, wo eine breite, aus dem
@@ -794,7 +794,7 @@ entlang- und herumgeführt werden mußte. sehr
 merkwürdig ist die Stelle, wo der Kanal in hölzernem,
 im Laufe der Jahrhunderte wohl mehrfach erneuertem
 Bette über den Fluß Choschab, der von Osten her
-in den Vansee fällt, hinübergeleitet wird (Abb. 8.42).
+in den Vansee fällt, hinübergeleitet wird (Abb. S. 42).
 
 Im oberen Choschab-Thal erhebt sich eine male-
 rische Feste, die heute die Ruinen eines Kurden-
@@ -817,7 +817,7 @@ in den See versunkenen Stadt bezeichnen soll, und
 die im Mittelalter tatsächlich die Schatzkammer
 
 des mächtigen Mongolenkaisers Hulagu-Chan ge-
-wesen Ist.
+wesen ist.
 
 Bis sie aber dorthin gelangten, waren auf viel-
 fach schwierigen Märschen die Gebiete diesseits der
@@ -845,7 +845,7 @@ stehende Schneewehen gefährdet, im Sommer be-
 
 _ rüchtigt durch die Überfälle der in diesen Grenz-
 gebieten besonders zügellosen, räuberischen Kurden,
-hat die »Stele kaum einen Besucher gesehen, der
+hat die Stele kaum einen Besucher gesehen, der
 nicht bei einem auch nur flüchtigen Aufenthalte hier
 mit Naturgewalten oder den Bewohnern der Nachbar-
 schaft ein ernsteres Abenteuer zu bestehen gehabt
@@ -867,7 +867,7 @@ denkmälern dieser Art mittels eines Zapfens in einen
 tigen Sockel eingelassen (Abb. S.45). Ganz das gleiche
 ist in Assur der Fall, und da die dortige Stelenreihe
 weit über die urartäische Zeit zurückgeht, so erkennen
-wir, dab die Urartäer mit der schrift (S. 12) auch
+wir, daß die Urartäer mit der schrift (S. 12) auch
 die Form der Urkunden in wesentlichen Zügen von
 den Assyrern übernommen haben.
 
@@ -908,7 +908,7 @@ Da, wo die vom Kelischin nach Osten herab-
 
 führende Straße in die Ebene einmündet, liegt unweit .
 Haek das Kurdendorf Singa, überragt von einer statt-
-lichen Feste (Abb. 8.48). Sieheißt Kiz-kalah, dieMädchen-
+lichen Feste (Abb. S. 48). Sie heißt Kiz-kalah, die Mädchen-
 burg, weil sie von einem Mädchen in einer Nacht
 erbaut sein solle Dieser Name und diese Legende
 finden sich in diesen Gebieten wiederholt für An-
@@ -929,18 +929,18 @@ hügel, dessen Kern die durch Ziegel erbaute und
 steil gebaute Plattform einer assyrischen Feste bildet;
 die Mädchenburg* von Singa ist ohne Zweifel ein
  Sperrfort, das zu Semiramis Zeiten von den Assyrern
-segen die über den Kelischin zum Urmiasee vor-
+gegen die über den Kelischin zum Urmiasee vor-
 
 dringenden Urartäer errichtet ward. —
 
-Auf dem Urmiasee hat schon Salmanassar IlIl.,
+Auf dem Urmiasee hat schon Salmanassar III.,
 den Anwohnern Kämpfe geliefert. Dabei kamen neben
-den Keleks Schiffe zur Verwendung, deren Rumpi
+den Keleks Schiffe zur Verwendung, deren Rumpf
 aus Tierhäuten besteht, die über ein Holzgestell oder
-Rohrgeflecht gespannt wurden (Abb. >. 49).
+Rohrgeflecht gespannt wurden (Abb. S. 49).
 
 Auch diese Fahrzeuge wurden, wie ein assy-
-risches Relief zeigt, gleich den Keleks zum Irans-
+risches Relief zeigt, gleich den Keleks zum Trans-
 port gebraucht, und in dieser Verwendung schildert
 sie Herodot als das größte Wunder, das ihm im
 Zweistromlande begegnet sei, mit einer Genauigkeit,
@@ -959,7 +959,7 @@ Krieger beim Eintreten ein Trunk geboten und das
 Ruhelager bereitet wird (Abb. S. 50). Auch die gut
 beobachtete Verfolgung des flüchtigen Kamelreiters
 auf einer Reliefplatte im Britischen Museum wird
-häufig genug stattgefunden haben (Abb. 8. 50).
+häufig genug stattgefunden haben (Abb. S. 50).
 Lehmann-Haupt, Semiramis. 4
 
 Solange der Sohn der Semiramis, größtenteils.
@@ -984,7 +984,7 @@ Semiramis gleich anderen Herrscherinnen des Alter-
 tums, so der Schwestergemahlin Ptolemaios’ IV. von
 Ägypten, ihren Gemahl bei seinen zahlreichen Kriegs-
 zügen ins Lager begleitete und durch ihre Gegen-
-wart den Kampfeseifer der Tuppen hob.
+wart den Kampfeseifer der Truppen hob.
 
 Den entscheidenden Wegweiser für die Entsteh-
 ung der Semiramis-Legende aber gibt der Umstand,
@@ -1027,7 +1027,7 @@ deren Namen größtenteils die Kriegszüge der Assyrer
 erfolgten, und die wir auf einem zu Babylon in den
 Ausgrabungen der Deutschen Orient-Gesellschaft ge-
 fundenen Relief mit dem Bogen bewaffnet dargestellt
-sehen (Abk. S. 54). Ohnehin war diese Gottheit in den
+sehen (Abb. S. 54). Ohnehin war diese Gottheit in den
 Gebieten östlich des Tigris lange vor dem Einrücken
 der Meder eine wohlbekannte Gestalt. Davon legt
 noch heute ein Felsrelief Zeugnis ab, das ein uralter
@@ -1105,7 +1105,7 @@ unter ihre eigenen Nationalhelden.
 
 Sollte es da lediglich der werbenden Kraft und
 
-der Wucht, die gerade der Demiramissage innewohnt,
+der Wucht, die gerade der Semiramissage innewohnt,
 
 zuzuschreiben sein, daß die Semiramis aus einer
 
@@ -1117,18 +1117,18 @@ Henkelfigur: geflügelte Sonnenscheibe mit chaldischer Göttin
 | (Rückseite).
 kehrende Verschmelzung erklären, wenn wirklich
  Frauenhand und Frauenklugheit auf urartäischer
-Deite an der Schöpfung der großartigen Felsen- und
+Seite an der Schöpfung der großartigen Felsen- und
 Wasserbauten mitgewirkt hätte.
 Und in der Tat, die Frau muß bei den Urartäern
 eine sehr bedeutende Rolle gespielt haben. Sonst
 würde nicht in der geflügelten Sonnenscheibe, die
 
 überall — bei den Ägyptern, von denen sie ausge-
-sangen ist, bei den Assyrern und bei den Persern —
+gangen ist, bei den Assyrern und bei den Persern —
 stets das Bild der obersten Gottheit trägt, bei den
 Urartäern eine Frau erscheinen. So wird die ge-
 flügelte Sonnenscheibe dargestellt in den Henkel-
-. fisuren großer Bronzegefäße, die mehrfach in Ar- .
+. Figuren großer Bronzegefäße, die mehrfach in Ar- .
 menien, aber auch in deutlicher Nachahmung dieser
 
 Chaldische Göttin in geflügelter Sonnenscheibe (Vorderansicht).
@@ -1137,7 +1137,7 @@ urartäischen Vorbilder in Olympia und an anderen
 Stätten älterer griechischer Kultur zutage getreten sind.
 Die Haartracht der Göttin gleicht der der heutigen
 Georgierinnen, und die Georgier haben auch aus
-anderen Gründen als Reste jener kleinasiatischen UrT-
+anderen Gründen als Reste jener kleinasiatischen Ur-
 bevölkerung zu gelten, der die Urartäer angehören.
 
 Und eine urartäische Königin mit ihrer Dienerin
@@ -1158,14 +1158,14 @@ Goldmedaille (°/s natürlicher Größe):
 urartäische Königin mit ihrer Dienerin.
 
 (Zeichnung von Franz Frohse). .
-sekommen sind, darf diese Goldplatte ein besonderes
+gekommen sind, darf diese Goldplatte ein besonderes
 Interesse beanspruchen. Sie ist mit der Mehrzahl
 der übrigen Ergebnisse unserer Ausgrabungen kürz-
 lich in den Besitz unserer Königlichen Museen über-
 gegangen.
 
 _ Vernahmen die Armenier bei ihrer Einwanderung
-in das Quellgebiet des Euphrat und des Tigris, dab
+in das Quellgebiet des Euphrat und des Tigris, daß
 
 bei den Chaldern, die sie verdrängten, damals und
 vor Zeiten, als jene großartigen Felsen- und Wasser-
@@ -1210,9 +1210,9 @@ dahin in Assyrien ganz unbekannt war, dort einge-
 führt wurde. In einer chronikartigen assyrischen
 Liste heißt es zum Jahre 787 v. Chr.: „Nebo zieht
 in den neuen Tempel ein.“ Und zwar sollte er
-als oberster Gott gelten; denn die „für ıhr und Ihres
+als oberster Gott gelten; denn die „für ihr und Ihres
 Sohnes Leben* gesetzte Inschrift der Nebo-Statue
-(oben 8. 2f.) schließt: .
+(oben S. 2f.) schließt: .
 „Wer immer du später sein mögest, auf Nebo ’
 verlasse dich, auf einen andern Gott vertraue nicht.“
 Scheinbar nur dem Kultus angehörig, war diese
@@ -1223,7 +1223,7 @@ langem die Herrschaft über das durch Fruchtbarkeit
 und Handelsbeziehungen gleichermaßen reiche Baby-
 lonien. Aber einer Einverleibung stellte sich der |
 lebhafte nationale Sinn der Babylonier entgegen. on
-Schon »Salmanassar Ill. hatte in babylonische
+Schon Salmanassar III. hatte in babylonische
 Ihronwirren mit ordnender Hand erfolgreich einge-
 griffen, König Samsi-Adad zwei aufeinander folgende
 Babylonierkönige bekämpft, den zweiten nach Assy-
@@ -1248,14 +1248,14 @@ werden.
 Babylonischer König konnte von Rechts wegen
 nur sein, wer zum Neujahrsfest im Nisan die Hände
 des Gottes Bel-Marduk in Babylon erfaßt hatte und
-diese Zeremonie alljährlich wiederholte. 0 sind die
+diese Zeremonie alljährlich wiederholte. So sind die
 späteren Assyrerkönige, als erster Pulu (Phul), — der
-als assyrischer Usurpator den Ihronnamen Tiglatpileser
+als assyrischer Usurpator den Thronnamen Tiglatpileser
 (745— 727) annahm, während er als babylonischer
 König seinen ursprünglichen Namen beibehielt, und
 der daher mit beiden Namen im Alten Testament
 auftritt —, tatsächlich verfahren. Aber sollte ein ein-
-heitlich assyrisch -babylonisches Reich begründet
+heitlich assyrisch-babylonisches Reich begründet
 werden, in dem der Nachdruck auf Assyrien lag,
 und der Assyrerkönig der demütigenden und lästigen
 Verpflichtung überhoben sein, alljährlich zu Neujahr
@@ -1271,7 +1271,7 @@ Nebo — nach älterer, auch in der Semiramis-Inschrift
 der Nebo-Statue vertretener Auffassung der Bruder,
 nach späterer der Sohn des Marduk — wurde
 aus seinem Haupttempel in Borsippa, heute der
-Irümmerstätte Birs-Nimrud, alljährlich zum Neujahrs-
+Trümmerstätte Birs-Nimrud, alljährlich zum Neujahrs-
 fest nach Babylon gebracht und war so gegenwärtig
 bei und mittelbar beteiligt an der Krönungszere-
 monie des Handerfassens und ihrer jährlichen Wieder-
@@ -1291,14 +1291,14 @@ könige, „König der vier Weltgegenden“, und nur
 diesen, erhält. Es ist klar, daß damit der be-
 treffende Salmanassar als Beherrscher auch Baby- :
 loniens nachdrücklich bezeichnet werden soll. War
-Salmanassar Ill. damit gemeint, so sollte der Schwieger-
+Salmanassar III. damit gemeint, so sollte der Schwieger-
 vater der Semiramis als der große Eroberer gekenn-
 zeichnet werden, der auch in die babylonischen Thron- \
 wirren nachdrücklich ordnend eingegriffen und so
 
 die neue Lage der Dinge vorbereitet hatte. Wäre
 Salmanassar IV. darunter zu verstehen, so würde der
-Titel „König der vier Weltgegenden“ besagen, dal der
+Titel „König der vier Weltgegenden“ besagen, daß der
 Enkel der Semiramis, der Sohn Adadniraris, offenbar
 noch zu Lebzeiten seines Vaters und seiner Großmutter
 zum Unterkönig von Babylonien ernannt worden
@@ -1314,7 +1314,7 @@ Gewinn dieser von ihr geförderten religiös-
 staatsrechtlichen Verschmelzung den Babyloniern
 als den in jeglicher Kultur Höherstehenden zu-
 fallen würde. So betrachtet stellt sich, ganz ent-
-segen den Absichten der Assyrer, die Einführung
+gegen den Absichten der Assyrer, die Einführung
 des Nebo-Dienstes als eine friedliche babylonische
 Eroberung dar. In der diplomatischen Umgehung
 der Anstöße, der Schonung der nationalen Empfind-
@@ -1330,7 +1330,7 @@ als Schöpferin Babylons und seiner Bauten gelten
 
 mit, daß Darius, als er um 520 v. Chr. die Verwaltung
 und Besteuerung des persischen Reiches neu ordnete,
-Assyrien und Babylonien zu einer %>Matrapie ver-
+Assyrien und Babylonien zu einer Satrapie ver-
 einigte, wodurch einer Vermengung und Verwechs-
 lung beider Begriffe Tür und Tor geöffnet wurde.
 So wird denn das große Babel Nebukadnezars, dessen
@@ -1349,7 +1349,7 @@ kadnezar für seine medische Gemahlin erbaut, um
 ihr die bergige Landschaft der Heimat im Abbilde
 nahe zu bringen. Anpflanzungen auf Dächern oder
 Terrassen nach Art solcher hängenden Gärten mögen
-in kleinerem Maßstabe schon vor Nebukadnedzar Ölter
+in kleinerem Maßstabe schon vor Nebukadnezar öfter
 ausgeführt sein, wenigstens hat man ein assyrisches
 Relief (Abb. S. 65) in diesem Sinne deuten wollen. Daß
 mitten in der Sage dieser auf medische Dinge bezüg-
@@ -1365,19 +1365,19 @@ eine Frau sei. Diese Tracht sei so kleidsam gewesen,
 daß später die Meder und nach ihnen die Perser sie
 
 angenommen hätten. Die Hose, als deren Erfinderin
-somit den Griechen die Semiramis galt, ıst tatsäch-
+somit den Griechen die Semiramis galt, ist tatsäch-
 lich zuerst bei den Medern nachweisbar.
-Erst die spätere Weiterentwicklung der »age
+Erst die spätere Weiterentwicklung der Sage
 hat dann auch die hängenden Gärten der mythischen
 
-Demiramis zugesprochen. Ihre Fundamente werden
+Semiramis zugesprochen. Ihre Fundamente werden
 
-on in Babylon auf dem Gelände des großen Palastes
+[wohl?] in Babylon auf dem Gelände des großen Palastes
 Nebukadnezars, ihres Erbauers, oder in deren Nach-
 barschaft zu finden sein.
 
 Zwei Keruben: Torhüterskulpturen, in den Ruinen von Kalach-Nimrud
-in sıtu aufgenommen.
+in situ aufgenommen.
 
 In Kalach hingegen besteht noch heute eine
 Stätte, an der das Andenken der historischen Semi-
@@ -1385,7 +1385,7 @@ ramis unmittelbar lebendig zu uns spricht.
 
 Wir betreten die einst vom Tigris bespülte Platt-
 form von Nimrud und lassen die Pyramide, die den
-von Salmanassar Ill. erbauten Tempel des Ninib
+von Salmanassar III. erbauten Tempel des Ninib
 birgt und die uns aus der Ferne gegrübt hat, genau
 wie sie Xenophon in seiner Anabasis schildert,
 
@@ -1399,17 +1399,17 @@ eindrucksvoller Weise zueinander und zu uns von
 der Vergänglichkeit irdischer Herrlichkeit zu sprechen
 
 Statue im Nebotempel zu Kalach-Nimrud.
-Vorderansiıcht. Rückansicht.
+Vorderansiicht. Rückansicht.
 (Zeichnungen von Lucy du Bois-Reymond).
-scheinen (Abb. 8.66). Dann nähern wir uns dem .
+scheinen (Abb. S. 66). Dann nähern wir uns dem .
 Südostrande der großen Stadtruine und sehen dort,
 von mehreren Seiten bequem zugänglich, eine Statue
-zur Hälfte aus der Erde hervorragen. Trotz ıhrer
+zur Hälfte aus der Erde hervorragen. Trotz ihrer
 Verwitterung gibt sie sich ohne weiteres als eine
-Wiederholung der oben (8. 3) abgebildeten Nebostatue
+Wiederholung der oben (S. 3) abgebildeten Nebostatue
 zu erkennen. Der Nebotempel, der auf Semiramis
 Betreiben erbaut wurde, war mit zahlreichen teils
-beschriebenen (8. 2), teils inschriftlosen Statuen des
+beschriebenen (S. 2), teils inschriftlosen Statuen des
 
 Gottes ausgestattet. Sie alle sind in die europäischen
 Museen verbracht worden. Nur dieses letzte dort
@@ -1419,7 +1419,7 @@ Stelle bis auf diesen Tag ein Wahrzeichen des Wirkens
 der historischen Semiramis!
 
 Wir stehen am Schlusse. Von der sagenhaften
-Umbhüllung befreit, sehen wir Semiramis vor uns als
+Umhüllung befreit, sehen wir Semiramis vor uns als
 eine Herrschergestalt, die zu einer Zeit, da sonst ,
 der Frau eine Beteiligung am Öffentlichen Leben
 versagt war, die Geschicke zweier, vornehmlich
@@ -1459,8 +1459,8 @@ wird, ist eine große Seltenheit. Und wenn wir so
 die assyrische Königin Semiramis den geschichtlichen
 Gestalten zugesellen dürfen, die ob ihrer Bedeutung
 und ihres großen Wirkens zu Helden der Sage ge-
-worden sind, einem Harun-al-Raschid, Karldem Großen,
-Dietrich von Bern, Friedrich Barbarossa und Friedrich Il.
+worden sind, einem Harun-al-Raschid, Karl dem Großen,
+Dietrich von Bern, Friedrich Barbarossa und Friedrich II.
 von Hohenstaufen, so erwächst dadurch dem Ver-
 trauen auf das Vorhandensein eines historischen
 Kernes in den sagenhaften Überlieferungen, die bei
@@ -1469,7 +1469,7 @@ zeit verbreitet sind, eine hocherwünschte Stärkung.
 Seien der deutschen Orient-Gesellschaft, die
 in Ägypten die Pyramidenbauer der fünften Dynastie
 und ihre eigenartigen Schöpfungen, in Palästina die
-vorisraelitische, kananäische Periode, ın Kleinasien
+vorisraelitische, kananäische Periode, in Kleinasien
 das Hetiterreich mit seinen, nach Osten wie nach
 Westen, zur Griechenwelt, hinüberweisenden Be-
 ziehungen wieder zum geschichtlichen Leben er-
@@ -1486,7 +1486,7 @@ spielt, beruht wohl teils darauf, daß die Taube der Istar heilig ist (s.
 
 dazu H. Zimmern, Die Keilinschriften und das alte Testament, 3. Aufl.,
 S. 429, 431 Anm. 5, 440) teils auf einem leichten Anklang des Namens
-der Semiramis an ein semitisches W ort für „Taube“ (bab.-assyr. summatu)
+der Semiramis an ein semitisches Wort für „Taube“ (bab.-assyr. summatu)
 
 S. 2 unten siehe zu S. 68.
 
@@ -1515,7 +1515,7 @@ terisiert sein.
 Ss. 9. Der Sohn (811—783) der Semiramis als Adad-
 nirari IV (nicht, wie bisher als „III*) zu bezeichnen s. Mitteilungen der
 Deutschen Orient-Gesellschaft No. 2 35 u. S. 32 S. 19 und Klio VI (1906),
-S. 534f. Ihr Schwiegervater (860—26) als Salmanassar IIl (nicht „II“)
+S. 534f. Ihr Schwiegervater (860—26) als Salmanassar III (nicht „II“)
 nach F. Delitzsch, Mitt. d. D. Or.-G. No. 42, S. 35 Anm.
 
 S. 24: Das Felsrelief Tiglatpilesers I und die Inschrift er-
@@ -1549,7 +1549,7 @@ S.45.Kel-i-giaur, die ,graueStele“,steht diesseits des Kelischin-
 Passes auf türkischem Gebiet, beim Dorfe Topzauä, 2—3 Stunden vom
 Kel-i-schin entfernt. Sie stammt aus der Zeit der späteren urartäisch”
 assyrischen Kämpfe und rührt her von Rusas I., dem mächtigen Gegner
-Sargons Il. (722—705) von Assyrien. S. Ztschr. der deutschen morgen-
+Sargons II. (722—705) von Assyrien. S. Ztschr. der deutschen morgen-
 ländischen Gesellschaft LVIII (1904), S. 831f.
 
 S.49: Herodot über die Rundschiffe auf dem Euphrat:
@@ -1643,7 +1643,7 @@ rührend : Diodor ‚nach Ktesias) II 10, 1.
 S. 65: Als eine Darstellung assyrischerhängender Gärten
 wurde die hier wiedergegebene assyrische Skulptur erklärt von B. Meißner,
 Wiener Ztschr. f. d. Kunde des Morgenlandes XII (1898), S. 272{f:; 364,
-für eine Wasserleitung von H. Winckler Oriental. Lit.-Ztg. Il (1897)
+für eine Wasserleitung von H. Winckler Oriental. Lit.-Ztg. II (1897)
 S. 55. Vgl. meinen Bericht „Assyrien“ in den Jahresberichten der Ge-
 schichtswissenschaft für 1907. I S. 207 Anm. 957.
 
@@ -1652,7 +1652,7 @@ S. 65: Die Hose als Erfindung der Semiramis Diodor II 6, 6.
 S. 68 ‘vgl. S. 2 unten): Die Angaben über die Zahl der Nebo*
 Statuen schwanken. Anfänglich (1851) wurden zwei beschriebene
 Statuen gefunden (W.K. Loftus, Travels and researches in Chaldaea and
-Sısiana p. 271 ff). Sir Henry Rawlinson, :The cuneiform inscriptions
+Sisiana p. 271 ff). Sir Henry Rawlinson, :The cuneiform inscriptions
 
 of Western Asia I pl. 35 No. 2, erwähnt im Ganzen fünf lebensgroße
 beschriebene und zwei kolossale unbeschriebene Statuen, von den
@@ -1672,14 +1672,14 @@ fern nichts anders bemerkt nach meiner Aufnahme während der For-
 schungsreise (S. 14) für mein Reisewerk „Armenien einst und jetzt“
 (S. 24, 72) angefertigt wurden und hier mit Genehmigung des Ver-
 legers wiedergegeben werden. — Kl. = Klischee (Zinkotypie). — „Ar-
-menien “I ıBd. I) : der 1910 erschienene erste (der in Vorbereitung
+menien” (Bd. I) : der 1910 erschienene erste (der in Vorbereitung
 befindliche zweite Band) des Reisewerkes. — Mat. = C. F. Lehmann-Haupt :
 Materialien zur älteren Geschichte Armeniens und Meso-
 potamiens(s. S.70: Anm. zu S. 33). — Layard I (I) = A.H. Layard, The
-monumentsofNinivehVol.L(ID).-- Maspero L(U, II)=G.Maspero, Hi-
-stoire ancienne des peuples de l’orient classique Vol. L(IL, I.
+monuments of Niniveh Vol. I (II).-- Maspero I (II, III) = G. Maspero, Hi-
+stoire ancienne des peuples de l’orient classique Vol. I (II, III).
 — Balawat = Ad. Billerbeck und F. Deliztsch, Die Palasttore
-SalmanassarslIl (jetzt III) von Balawat (Beiträge zur AssyriologieVI1).
+Salmanassars II (jetzt III) von Balawat (Beiträge zur Assyriologie VII).
 Abbildung auf
 Seite
 
@@ -1726,7 +1726,7 @@ S. 445.
 26 (unten) Natürlicher Durchgang im Tunnelfelsen. — St. — Arm. IS.
 27 Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel.
 — St. — Armenien IS. 449.
-29 Assyrische Krieger in bergigem Gelände. — Kl. — Layard Il Tafel 37.
+29 Assyrische Krieger in bergigem Gelände. — Kl. — Layard II Tafel 37.
 30 Kampf zwischen Assyrern und Urartäern. — Kl. — Balawat Schien.
 B, Tafel 1.
 31 Opfer vor dem Königsbild und den Feldzeichen. — Kl. — Balawaet
@@ -1760,7 +1760,7 @@ Armenien Bd. II.
 43 Guertschin-kalah, die „Taubenfeste* im Urmia-See. — St. — Arme-
 nien I S. 311.
 45 Kel-i-giaur, verstümmelte Stele auf Sockel. — St. — Armenien
-Bqd.II (vgl. S. 71 zu S. 45).
+Bd. II (vgl. S. 71 zu S. 45).
 46 Die Expedition an der Kelischin-Stele. — Kl. — Nach Photographie
 von W, Belck. |
 47 Persischer Kurde vom Stamme Deibokri. dsg]. \
