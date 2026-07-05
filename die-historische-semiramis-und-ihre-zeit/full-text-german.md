@@ -1296,4 +1296,184 @@ vater der Semiramis als der große Eroberer gekenn-
 zeichnet werden, der auch in die babylonischen Thron- \
 wirren nachdrücklich ordnend eingegriffen und so
 
+die neue Lage der Dinge vorbereitet hatte. Wäre
+Salmanassar IV. darunter zu verstehen, so würde der
+Titel „König der vier Weltgegenden“ besagen, dal der
+Enkel der Semiramis, der Sohn Adadniraris, offenbar
+noch zu Lebzeiten seines Vaters und seiner Großmutter
+zum Unterkönig von Babylonien ernannt worden
+war; oder aber, man hätte anzunehmen, daß ihm
+überhaupt eine Mitregentschaft übertragen worden
+sei und man dabei — in diesem ersten Falle der
+rechtmäßigen Vereinigung beider Reiche auf Grund
+des Nebo-Kultes — das babylonische Königtum in
+den Vordergrund treten ließ.
+Semiramis war sich gewiß von vornherein |
+im klaren darüber gewesen, daß schließlich der
+Gewinn dieser von ihr geförderten religiös-
+staatsrechtlichen Verschmelzung den Babyloniern
+als den in jeglicher Kultur Höherstehenden zu-
+fallen würde. So betrachtet stellt sich, ganz ent-
+segen den Absichten der Assyrer, die Einführung
+des Nebo-Dienstes als eine friedliche babylonische
+Eroberung dar. In der diplomatischen Umgehung
+der Anstöße, der Schonung der nationalen Empfind-
+lichkeit wie der Babylonier so der Assyrer, der
+scheinbaren Anerkennung der assyrischen Obmacht
+verrät sich deutlich das Wirken einer klugen und
+umsichtigen, zur Herrscherin geschaffenen Frau. —
+Da Semiramis Babylonien nicht minder wie
+Assyrien angehörte, so konnte sie, vom Standpunkt
+der Sage aus, mit einem Schein von Berechtigung
+als Schöpferin Babylons und seiner Bauten gelten
+(S. 59f.). Fördernd wirkte dabei freilich die Tatsache
+
+mit, daß Darius, als er um 520 v. Chr. die Verwaltung
+und Besteuerung des persischen Reiches neu ordnete,
+Assyrien und Babylonien zu einer %>Matrapie ver-
+einigte, wodurch einer Vermengung und Verwechs-
+lung beider Begriffe Tür und Tor geöffnet wurde.
+So wird denn das große Babel Nebukadnezars, dessen
+wichtigste Ruinen durch die deutsche Orient-Gesell-
+schaft dem Schutte wieder entrissen worden sind,
+bei Ktesias, der die Einzelheiten vielfach zutreffend
+schildert, durchweg der Semiramis zuerteilt. Mit
+einer sehr merkwürdigen Ausnahme freilich.
+Gerade die hängenden Gärten, die in der land-
+läufigen Vorstellung am engsten mit der Semiramis
+verknüpft sind, werden auch bei Ktesias ausdrücklich
+nicht der Semiramis zugeschrieben, sondern der
+Gemahlin eines späteren Königs... In Wahrheit wur-
+den sie nach dem Zeugnis des Berossos von Nebu-
+kadnezar für seine medische Gemahlin erbaut, um
+ihr die bergige Landschaft der Heimat im Abbilde
+nahe zu bringen. Anpflanzungen auf Dächern oder
+Terrassen nach Art solcher hängenden Gärten mögen
+in kleinerem Maßstabe schon vor Nebukadnedzar Ölter
+ausgeführt sein, wenigstens hat man ein assyrisches
+Relief (Abb. S. 65) in diesem Sinne deuten wollen. Daß
+mitten in der Sage dieser auf medische Dinge bezüg-
+liche rein historische Zug sich erhalten hat, kann als _
+eine weitere Bestätigung für die Entstehung der
+Semiramis-Sage bei den Medern gelten.
+Auf die Meder weist noch ein andrer Zug dieser u
+Sage. Nach Ktesias soll Semiramis bei ihren Feldzügen
+im Osten eine Kleidung erfunden haben, die unmöglich
+
+machte, zu unterscheiden, ob der Träger ein Mann oder
+eine Frau sei. Diese Tracht sei so kleidsam gewesen,
+daß später die Meder und nach ihnen die Perser sie
+
+angenommen hätten. Die Hose, als deren Erfinderin
+somit den Griechen die Semiramis galt, ıst tatsäch-
+lich zuerst bei den Medern nachweisbar.
+Erst die spätere Weiterentwicklung der »age
+hat dann auch die hängenden Gärten der mythischen
+
+Demiramis zugesprochen. Ihre Fundamente werden
+
+on in Babylon auf dem Gelände des großen Palastes
+Nebukadnezars, ihres Erbauers, oder in deren Nach-
+barschaft zu finden sein.
+
+Zwei Keruben: Torhüterskulpturen, in den Ruinen von Kalach-Nimrud
+in sıtu aufgenommen.
+
+In Kalach hingegen besteht noch heute eine
+Stätte, an der das Andenken der historischen Semi-
+ramis unmittelbar lebendig zu uns spricht.
+
+Wir betreten die einst vom Tigris bespülte Platt-
+form von Nimrud und lassen die Pyramide, die den
+von Salmanassar Ill. erbauten Tempel des Ninib
+birgt und die uns aus der Ferne gegrübt hat, genau
+wie sie Xenophon in seiner Anabasis schildert,
+
+hinter uns. Einen Augenblick verweilen wir auf
+dem mit unzähligen freiliegenden Skulpturen und
+Inschriftplatten von den englischen Ausgrabungen
+her übersäten Trümmerfelde an einem Paar von
+Keruben, die an der Stelle, wo sie einst als Torhüter
+aufgestellt waren, umgestürzt sind und in besonders
+eindrucksvoller Weise zueinander und zu uns von
+der Vergänglichkeit irdischer Herrlichkeit zu sprechen
+
+Statue im Nebotempel zu Kalach-Nimrud.
+Vorderansiıcht. Rückansicht.
+(Zeichnungen von Lucy du Bois-Reymond).
+scheinen (Abb. 8.66). Dann nähern wir uns dem .
+Südostrande der großen Stadtruine und sehen dort,
+von mehreren Seiten bequem zugänglich, eine Statue
+zur Hälfte aus der Erde hervorragen. Trotz ıhrer
+Verwitterung gibt sie sich ohne weiteres als eine
+Wiederholung der oben (8. 3) abgebildeten Nebostatue
+zu erkennen. Der Nebotempel, der auf Semiramis
+Betreiben erbaut wurde, war mit zahlreichen teils
+beschriebenen (8. 2), teils inschriftlosen Statuen des
+
+Gottes ausgestattet. Sie alle sind in die europäischen
+Museen verbracht worden. Nur dieses letzte dort
+verbliebene Bild des Gottes bezeichnet noch heute
+die Stätte jenes Tempels, und bildet so an Ort und
+Stelle bis auf diesen Tag ein Wahrzeichen des Wirkens
+der historischen Semiramis!
+
+Wir stehen am Schlusse. Von der sagenhaften
+Umbhüllung befreit, sehen wir Semiramis vor uns als
+eine Herrschergestalt, die zu einer Zeit, da sonst ,
+der Frau eine Beteiligung am Öffentlichen Leben
+versagt war, die Geschicke zweier, vornehmlich
+durch ihre Klugheit und Umsicht verbundener Reiche
+in Krieg und Frieden entscheidend und durchgreifend
+geleitet hat.
+
+Wir sahen, daß noch die Sage gewisse histo-
+rische Einzelzüge bewahrt hat, und konnten die
+Hauptmomente erkennen, die für die Anknüpfung
+des Mythus an die geschichtliche Persönlichkeit
+maßgebend waren. Ist das schon ein nicht alltäg-
+licher Gewinn der Forschung, so ist doch dieses
+Gesamtergebnis über den einzelnen Fall hinaus in
+mehreren Richtungen bedeutungsvoll.
+
+In dem Ringen zwischen Geschichte und Sage
+haben die Ausgrabungen in den alten Kulturgebieten
+des Ostens eine wesentliche Stärkung der histo-
+rischen Forschung ergeben. Das goldreiche Mykene,
+das Troja der Ilias sind durch Schliemann und Dörp-
+feld wieder zu Wirklichkeiten geworden. Und — ein
+Beispiel aus märkischem Boden — die Überlieferung,
+daß in dem Grabe von Seddin ein Herrscher in einem
+dreifältigen Sarge bestattet sei, hat der Befund der
+
+Ausgrabung bestätigt. Aber Hektor und Agamemnon,
+Hekuba und Klytaemnestra bleiben als Persönlichkeiten
+im Nebel der Sage verborgen; nur die Umgebung, in
+der sie sich bewegten, die Hauptzüge der Gescheh-
+nisse, an denen sie oder ihresgleichen mitgewirkt
+haben, treten in das Licht der Geschichte. |
+Daß eine Persönlichkeit, die die Trägerin [und
+den Mittelpunkt einer ganzen Gruppe von Legenden
+bildet, als solche der Geschichte zurückgewonnen
+wird, ist eine große Seltenheit. Und wenn wir so
+die assyrische Königin Semiramis den geschichtlichen
+Gestalten zugesellen dürfen, die ob ihrer Bedeutung
+und ihres großen Wirkens zu Helden der Sage ge-
+worden sind, einem Harun-al-Raschid, Karldem Großen,
+Dietrich von Bern, Friedrich Barbarossa und Friedrich Il.
+von Hohenstaufen, so erwächst dadurch dem Ver-
+trauen auf das Vorhandensein eines historischen
+Kernes in den sagenhaften Überlieferungen, die bei
+einem Volke oder dessen Nachbarn über dessen Vor-
+zeit verbreitet sind, eine hocherwünschte Stärkung.
+Seien der deutschen Orient-Gesellschaft, die
+in Ägypten die Pyramidenbauer der fünften Dynastie
+und ihre eigenartigen Schöpfungen, in Palästina die
+vorisraelitische, kananäische Periode, ın Kleinasien
+das Hetiterreich mit seinen, nach Osten wie nach
+Westen, zur Griechenwelt, hinüberweisenden Be-
+ziehungen wieder zum geschichtlichen Leben er-
+weckt hat, auch im Zweistromlande ferner so be-
+deutsame Funde beschieden, wie die Semiramis-
+Inschrift aus der Stelenreihe von Assur!
 
