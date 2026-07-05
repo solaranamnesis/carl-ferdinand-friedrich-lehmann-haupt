@@ -1477,3 +1477,314 @@ weckt hat, auch im Zweistromlande ferner so be-
 deutsame Funde beschieden, wie die Semiramis-
 Inschrift aus der Stelenreihe von Assur!
 
+Anmerkungen.
+
+(Das Verzeichnis der Abbildungen und ihrer Quellen s. S. 74 ff.)
+
+S. 2 und S. 9: Die Rolle die die Taube in der Semiramis-Sage
+spielt, beruht wohl teils darauf, daß die Taube der Istar heilig ist (s.
+
+dazu H. Zimmern, Die Keilinschriften und das alte Testament, 3. Aufl.,
+S. 429, 431 Anm. 5, 440) teils auf einem leichten Anklang des Namens
+der Semiramis an ein semitisches W ort für „Taube“ (bab.-assyr. summatu)
+
+S. 2 unten siehe zu S. 68.
+
+" S.10f. Der Ninos-Roman herausgegeben und behandelt von
+| U. Wilcken, Hermes 28 (1893), S. 161 ft.
+
+S. 11: Steintransport aus Armenien durch Semiramis Diodor
+I, 11,4. — Ninos gegen Armenien: Diodor II, 1, 8 u. 9.
+
+S. 7f. (vgl. S. 62f.): Zeile 6 der Semiramis-Inschrift von
+Assur beginnt nach den von dorther eingetroffenen Berichten mit den
+Zeichen KID. LAT. — Die Annahme liegt sehr nahe, daß für KID das
+ihm sehr ähnliche Zeichen KAL dasteht und dann zu lesen ist kal-lat.
+Damit würde Semiramis (in assyrischer Aussprache: Schammuramat,
+in babylonischer: Sammuramat) bezeichnet als die Schwiegertochter Sal-
+manassars III. (Kallätu bezeichnet zwar ursprünglich „Braut, junge Frau“.
+Aber auch im Hebräischen findet sich für ==> kalläh der gleiche
+Bedeutungsübergang, der auch bei dem griechischen Worte »öugn, be-
+sonders im Neuen Testament, nachweisbar ist). Freilich griffe dann
+die Genealogie die im Übrigen in dieser Inschrift von oben nach unten
+fortschreitet, zurück. Erwiese sich dagegen bei Prüfung des Originals,
+daß wirklich KID. LAT dasteht, so müßte, wie im Text bemerkt, Semi-
+ramis dadurch als Großmutter oder Vormündin Salmanassars IV. charak-
+terisiert sein.
+
+Ss. 9. Der Sohn (811—783) der Semiramis als Adad-
+nirari IV (nicht, wie bisher als „III*) zu bezeichnen s. Mitteilungen der
+Deutschen Orient-Gesellschaft No. 2 35 u. S. 32 S. 19 und Klio VI (1906),
+S. 534f. Ihr Schwiegervater (860—26) als Salmanassar IIl (nicht „II“)
+nach F. Delitzsch, Mitt. d. D. Or.-G. No. 42, S. 35 Anm.
+
+S. 24: Das Felsrelief Tiglatpilesers I und die Inschrift er-
+scheinen etwas verzerrt, da der Verfasser bei der Aufnahme an Ort
+
+und Stelle auf einer Sandbank im Flußbett schräg und tief unter der
+Skulptur stehen mußte.
+
+S, 33: Für die Ergebnisse der mit Unterstützung der Rudoli-
+Virchow -Stiftung vorgenommenen Ausgrabungen auf der Chalder-
+burg Toprakkaleh bei Van verweise ich bis zum Erscheinen
+des II. Bandes meines Reisewerkes (S. 24; 74) auf meine Abhandlung „Ma-
+terialien zur Kultur und zur Herkunft der Chalder vornehmlich aus den
+Ausgrabungen auf Toprakkaläh bei Van“, die als zweiter Abschnitt
+meinen „Materialien zur älteren Geschichte Armeniens und Mesopota-
+miens“. (Abhandlungen der Königl. Gesellschaft der Wissenschaften zu
+Göttingen. Philosophisch-Historische Klasse. Bd. IX, Nr. 3. Weid-
+mannsche Buchhandlung 1907) einverleibt ist.
+
+S. 38, Abs. 2: Für die armenische Tradition über Semi-
+ramis findet sich der wichtigste unter vielen Belegen im 16. Kapitel
+des ersten Buches der armenischen Geschichte, die den Namen des im
+fünften nachchristlichen Jahrhundert lebenden Moses von Chorene trägt,
+aber wahrscheinlich einige Jahrhunderte später verfaßt ist.
+
+S, 41: Die Keilinschriften am Aquädukt des Menuas sind
+14-, 9-, 4- und 3zeilig.. An der dargestelten Stelle befindet sich eine
+9zeilige Inschrift, insofern bedarf die Abbildung einer Berichtigung.
+
+S.45.Kel-i-giaur, die ,graueStele“,steht diesseits des Kelischin-
+Passes auf türkischem Gebiet, beim Dorfe Topzauä, 2—3 Stunden vom
+Kel-i-schin entfernt. Sie stammt aus der Zeit der späteren urartäisch”
+assyrischen Kämpfe und rührt her von Rusas I., dem mächtigen Gegner
+Sargons Il. (722—705) von Assyrien. S. Ztschr. der deutschen morgen-
+ländischen Gesellschaft LVIII (1904), S. 831f.
+
+S.49: Herodot über die Rundschiffe auf dem Euphrat:
+1 194.
+
+S. 51 ff: Meine Ansicht über die Entstehung der Semiramis-
+Sage und ihr Verhältnis zur historischen Semiramis habe ich 1894
+zum ersten Male ausgesprochen (Berliner Philologische Wochenschrift
+Sp. 239) und alsdann ausführlicher entwickelt in dem Aufsatze „Die
+historische Semiramis und Herodot“. (Klio, Beiträge zur alten Geschichte- .
+Bd. I [1901], S. 256 ff). Nur nahm ich damals an, daß Semiramis
+die Gemahlin Adadniraris, nicht, wie wir jetzt wissen, seine Mutter ge-
+wesen sei. Dort wurde auch gezeigt, daß Herodot (I 184) seine Kennt-
+nis von der geschichtlichen Semiramis babylonischen Nebopriestern ver-
+danken wird, woraus sich für die Kritik des Herodot Wichtiges ergibt.
+Wenn dagegen Herodot (II 155) in der auf mündlicher Erkundung be-
+
+ruhenden Mär von der zweimaligen Einnahme Babylons (I 188—191;
+nII, 150—160) ein Tor von Babylon nach der Semiramis benennt, so
+liegt hier ein Element der im persischen Volksmunde verbreiteten
+Semiramis-Sage vor, die wahrscheinlich schon Herodots Oheim Panyasis
+dichterisch verwertet hat. Vgl. ferner meinen Artikel „Semiramis“ in
+Roschers Lexikon der griechischen und römischen Mythologie.
+
+S. 51, Abs. 3 a. A.: Eine Ahnung von dem historischen Sach-
+verhalt klingt auch bei Ktesias noch nach, wenn er (Diod. II, 1,4) von
+ruhmlosen „einheimischen“ (aber nicht „assyrischen“) Königen weiß, die
+
+vor Ninus gelebt hätten.
+
+S.53ff: Die Stellen aus dem Gilgamisch-Epos zitiert nach
+P. Jensens Bearbeitung und Übersetzung in Schraders Keilinschriftlicher
+Bibliothek. Bd. VI. Erster Teil. S. 168 ff. '
+
+S. 54: Wie Istar ihre Liebhaber mißhandelt, so tötet Semiramis nach
+
+Ktesias bei Diodor jeden, dem sie ihre Gunst einmal geschenkt hat:
+
+- e8 liegt hier das weitverbreitete mythische Motiv des „gefährlichen
+Mädchens“ (Weibes) vor.
+
+S. 55, Abs. 2: Über dieKönigs-Berufungssage und Verwandtes
+siehe u. a. meinen Aufsatz „Belitanäs und Beletaras“ in der Festschrift
+für Theodor Nöldeke (1906), S. 1004 ff. und was dort eitiert ist.
+
+S. 55, Abs. 4: Strabo XVI 1, 2.
+
+S. 56 unten: Über dieHenkelfiguren mit Darstellungen der ge-
+flügelten Sonnenscheibe siehe Näheres in meinen „Materialien“, S. 86 ff.
+
+S.57f.: Daß auf dem Goldmedaillon von Toprakkaleh eine,
+Königin im Gespräch mit ihrer Dienerin, nicht, wie ich annahm, eine
+Anbetungsszene vor einer sitzenden weiblichen Gottheit dargestellt ist,
+hat L. Messerschmidt in den amtlichen Berichten aus den Königl. Kunst-
+sammlungen (31. Jahrgang, Nr, 3, Dezember 1909, Spalte 55) gezeigt.
+
+S. 44: Überden „Kelischineinstundjetzt“, siehe das Reise-
+
+werk (ob. S. 24), „Armenien einst und jetzt“ Reisen und Forschungen.
+Erster Band. (Berlin, B. Behr’s Verlag 1910), Kap. VII, S. 242—261.
+
+S.59f.: Für Berossos’ Kunde von der historischen Semi-
+ramis sei auf meine Darlegungen (Klio, Bd. I 259, 277, 481; III 149;
+VII 230; X 256f.) verwiesen.
+
+S. 61: Der Versuch, die Tatsachen zu verdrehen und den .
+assyrischen Hauptgott als den älteren Bäl, den Vater des baby-
+lonischen Bäl-Marduk, hinzustellen, ist von den Assyrern auch einmal
+gemacht worden, als Sanherib Babylon zerstört und Babylonien zur assyri-
+schen Provinz gemacht hatte (s. Klio 1167£., VII 461). Da nunmehr das
+babylonische Neujahrsfest in Assyrien gefeiert werden sollte, wurde
+
+damals von Sanherib das bei den Ausgrabungen der Deutschen Orient-
+gesellschaft (s. deren Mitteilungen Nr. 33 S. 4 ff. 33 ff.) in seinen Funda-
+menten wieder aufgedeckte Neujahrsfesthaus erbaut und an dessen Haupt-
+tore, wie inschriftlich bezeugt ist, der Mythus von der Tötung der
+Tiamat, des Chaostieres "durch den Schöpfergott dargestellt; als Be-
+kämpfer des Tiamat erschien dabei aber nicht, wie es der Mythus for-
+derte, der babylonische Hauptgott B&äl-Marduk, sondern Assur. Für eine
+friedliche Vereinigung beider Reiche, wie sie von Semiramis angestrebt
+wurde, wäre ein solches Vorgehen natürlich völlig ungeeignet gewesen.
+
+S. 62f. Siehe oben die Anm. zu S. 7f.
+
+S.63f. Assyrien und Babylonien eine Satrapie Her. III 92; I 192,
+Über die darauf beruhende Begriffsverwirrung Klio I (1901), S. 270ft.
+
+S.64. Die hängenden Gärten nicht von der Semiramis her-
+rührend : Diodor ‚nach Ktesias) II 10, 1.
+
+S. 65: Als eine Darstellung assyrischerhängender Gärten
+wurde die hier wiedergegebene assyrische Skulptur erklärt von B. Meißner,
+Wiener Ztschr. f. d. Kunde des Morgenlandes XII (1898), S. 272{f:; 364,
+für eine Wasserleitung von H. Winckler Oriental. Lit.-Ztg. Il (1897)
+S. 55. Vgl. meinen Bericht „Assyrien“ in den Jahresberichten der Ge-
+schichtswissenschaft für 1907. I S. 207 Anm. 957.
+
+S. 65: Die Hose als Erfindung der Semiramis Diodor II 6, 6.
+
+S. 68 ‘vgl. S. 2 unten): Die Angaben über die Zahl der Nebo*
+Statuen schwanken. Anfänglich (1851) wurden zwei beschriebene
+Statuen gefunden (W.K. Loftus, Travels and researches in Chaldaea and
+Sısiana p. 271 ff). Sir Henry Rawlinson, :The cuneiform inscriptions
+
+of Western Asia I pl. 35 No. 2, erwähnt im Ganzen fünf lebensgroße
+beschriebene und zwei kolossale unbeschriebene Statuen, von den
+ersteren seien zwei im Britischen Museum. George Rawlinson dagegen
+(The five great monarchies of the East, vol. II p. 119 ff.) weiß von vier
+beschriebenen und vier inschriftlosen kolossalen Statuen zu berichten;
+die sein Bruder Henry gefunden habe,
+
+S. 69: Über das Königsgrab von Seddin siehe A. Kiekebusch
+in der Sonntagsbeilage, Nr. 1 der „Vossischen Zeitung“ von 4. Januar 1910.
+
+Verzeichnis der Abbildungen und ihrer
+Quellen.
+
+St. = Strichätzung nach Zeichnungen von Künstlerhand, die — so-
+fern nichts anders bemerkt nach meiner Aufnahme während der For-
+schungsreise (S. 14) für mein Reisewerk „Armenien einst und jetzt“
+(S. 24, 72) angefertigt wurden und hier mit Genehmigung des Ver-
+legers wiedergegeben werden. — Kl. = Klischee (Zinkotypie). — „Ar-
+menien “I ıBd. I) : der 1910 erschienene erste (der in Vorbereitung
+befindliche zweite Band) des Reisewerkes. — Mat. = C. F. Lehmann-Haupt :
+Materialien zur älteren Geschichte Armeniens und Meso-
+potamiens(s. S.70: Anm. zu S. 33). — Layard I (I) = A.H. Layard, The
+monumentsofNinivehVol.L(ID).-- Maspero L(U, II)=G.Maspero, Hi-
+stoire ancienne des peuples de l’orient classique Vol. L(IL, I.
+— Balawat = Ad. Billerbeck und F. Deliztsch, Die Palasttore
+SalmanassarslIl (jetzt III) von Balawat (Beiträge zur AssyriologieVI1).
+Abbildung auf
+Seite
+
+1 Alte Tigrisbrücke bei Djezireh. — St. — Armenien I S. 364.
+
+3 Nebo-Statue aus Kalach-Nimrud (im Britischen Museum). — Kl. —
+Photographie Mansell.
+
+5 Assur: ZweiKönigsstelen. — Kl. — Mitteilungen der Deutschen
+Orient-Gesellschaft Nr. 42 (Dezember 1909) S. 36.
+
+6 Die Reihe der Königsstelen aus Westen, ebenda S. 39.
+
+7 Inschrift der Semiramis-Stele von Assur. — St. —.
+
+9 Salmanassar IIl., der Schwiegervater der Semiramis (Stele im Brit.
+Mus.) — Kl. — Photographie Mansell.
+
+15 Künstlicher Durchblick an einer chaldischen Felsenfeste. — St. —
+
+Armenien 1S. 484.
+
+16 Blick in das Tal des Bohtan-su (Kentrites), — St. — Armenien I S. 332.
+17 Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei
+Till. — St. — Armenien I S. 338.
+
+Abbildung auf
+Seite
+19 Bau eines Kelek. — St. — Armenien 1 S. 34 (nach der Aufnahme
+von E. Huntington, Zeitschrift für Ethnologie XXXII «1901)
+S. 184.
+20 Assyrisches Kelek (Reliefplatte, Brit. Museum). — Kl. — Layard,
+Il 13, Maspero I 617.
+21 Durchschwimmen eines Flusses auf einem Burdjuk. — St. — Arme-
+nien IS. 523 (nach Aufnahme von E. Huntington S. 194).
+22 Felsenbrücke unterhalb des Tigristunnel-Ausgangs. — St. — Arme-
+| nien I S. 432.
+23 Das untere Ende des Tigristunnels. — St. — Armenien I S. 435.
+24 Felsrelief und Inschrift Tiglatpilesers I. am Ausgange des Tigris-
+tunnels. — Kl. — Mat. S. 17 Fig. 7a.
+25 An der Tigrisquelle — Kl. — Balawat Schiene J, Tafel IV.
+\ 26 (oben) Der westliche Teil des Tigrisfelsens.. — St. — Armenien I
+S. 445.
+26 (unten) Natürlicher Durchgang im Tunnelfelsen. — St. — Arm. IS.
+27 Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel.
+— St. — Armenien IS. 449.
+29 Assyrische Krieger in bergigem Gelände. — Kl. — Layard Il Tafel 37.
+30 Kampf zwischen Assyrern und Urartäern. — Kl. — Balawat Schien.
+B, Tafel 1.
+31 Opfer vor dem Königsbild und den Feldzeichen. — Kl. — Balawaet
+Schiene A, Tafel 1.
+32 Belagerungsmaschine. — Kl. — Layard I, Tafel 17.
+33 Transport eines urartäischen Tonkruges durch die Assyrer. — Kl. —
+Balawat Schiene, B, Tafel 1.
+34 (oben) Urartäischer Tempel mit bronzenen Weiheschildern, von
+Assyrern erstürmt. — Kl. — M. Botta Monument de Ninive, II
+. Taf. 141.
+34 (unten) Wuchtiger bronzener Thronfuß, von der Expedition ausge-
+graben auf Toprakkaleh bei Van. — Kl. — Mat. S. 96 Fig. 65.
+35 Kastell Sardurs am Fuße der Felsenburg von Van. — Kl. — Mat.
+S. 61 Fig. 37.
+36 König Samsi-Adad, der Gemahl der Semiramis (assyrische Stele, Brit.
+Museum) — Kl. — Photographie Mansell.
+37 Der höchste, westlichste der „Semiramis-Burg“ mit den türkischen
+Befestigungen. — St. — Armenien Bd. II.
+39 Die Argistis--Kammern auf der „Semiramis-Burg“. — Kl. — Nach
+Photographie des Verfassers, zuerst veröffentlicht in den Ver-
+handlungen d. Berl. anthropol. Ges. 1900 Tafel II.
+
+Abbildung auf
+Seite "
+40 Urartäische Anlage im lebendigen Festen auf der „Semiramis-Burg“
+— St. — Armenien Bd. I.
+41 Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs |
+Menuas (vgl. ob. S. 71) — St. — Armenien Bd...
+42 Überführung des „Semiramis-Kanals* über den Choschab. — St. —
+Armenien Bd. II.
+43 Guertschin-kalah, die „Taubenfeste* im Urmia-See. — St. — Arme-
+nien I S. 311.
+45 Kel-i-giaur, verstümmelte Stele auf Sockel. — St. — Armenien
+Bqd.II (vgl. S. 71 zu S. 45).
+46 Die Expedition an der Kelischin-Stele. — Kl. — Nach Photographie
+von W, Belck. |
+47 Persischer Kurde vom Stamme Deibokri. dsg]. \
+48 Dorf Singa mit der Mädchenburg. — St. — Armenien I S, 247.
+49 Assyrisches Rundschiff. Layard II 12 N. 2, Maspero Ip. 549.
+50 (oben) Assyrisches Zeltlager (Berliner Museum) — Kl. — Nach Photo-
+graphie von C. Günther.
+50 (unten) Verfolgung eines flüchtigen Kamelreiters. London. — Kl. —
+Layard, I 57.
+51 Felsrelief: Der uralte Lulubäer-König Anubanini vor der Göttin
+Istar. — Kl. — Maspero II p. 603: Eduard Meyer: Sumerier und
+Semiten S. 25.
+54 Schamasch-resch-ußur zwischen Istar links und Adad rechts. — Kl. —
+Nach A. H. Weißbach Babylonische Miszellen (Wissenschaftl. Ver-
+öffentlichungen der Orient-Gesellschaft Nr. 4) Tafel I, S. 1.
+56, 57 Henkelfigur (älterer Besitz der vorderasiatischen Sammlungen der =
+Kgl. Museen zu Berlin): geflügelte Sonnenscheibe mit Chaldischer
+Göttin. Rückseite und Vorderseite. — Kl. — Mat. S. 87 Fig. 57 u. 58.
+58 Goldmedaille: Urartäische Königin mit ihrer Dienerin. — St, — “
+Mat. S. 84 Fig. 56.
+65 Assyrische Darstellung einer Anlage nach Art der hängenden
+Gärten (?) (Reliefplatte im Brit. Museum) — Kl. — Nach Perrot-
+Chipiez, Histoire de l’art dans l’antiquite II p. 143. \
+66 Zwei Keruben, Torhüterskulpturen, vom Verfasser in den Ruinen
+von Kalach-Nimrud aufgenommen — Kl. — Mat. S. 8 Fig. 3a.
+67 Statue im Nebotempel zu Kalach-Nimrud Vorderansicht. — St. —
+Mat. S. 14 Fig. 21. Desgl. Rückansicht — St. — Mat. Tafel V.
