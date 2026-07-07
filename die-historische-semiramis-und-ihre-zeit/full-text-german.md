@@ -54,167 +54,36 @@ Und merkwürdigerweise hat sich auch in der Semiramis-Sage eine Hindeutung auf d
 
 Daß kriegerischer Sinn und bedeutende Eroberungszüge der sagenhaften Vertreterin des kriegerischen Assyrerreiches zugeschrieben wurden, war an sich selbstverständlich. Nun aber trifft weiter zu, daß die Zeit, in der die geschichtliche Semiramis lebte, an kriegerischen Unternehmungen besonders reich war. Salmanassar 3. (860-826), ihr Schwiegervater, hat seine Waffen im Süden nach Babylonien, im Westen gegen Damaskus, Hamat und deren Verbündete, nicht minder auch nach Osten und Norden getragen, wie uns denn der bekannte Obelisk Salmanassars aus Kalach-Nimrud die Erfolge, die der Herrscher in allen Himmelsrichtungen errungen hatte, in den Tributen und Geschenken der unterworfenen und bekämpften Völker --- darunter dem des Jehu von Israel --- vor Augen führt. Sein Sohn aber, der Gemahl, und sein Enkel, der Sohn der Semiramis, haben es ihm nachgetan.
 
-Zwei Völkerschaften treten in dem sagenhaften
-Berichte bei Ktesias besonders hervor, im Osten die
-Meder, im Norden die damaligen Bewohner des nach-
-mals als Armenien bezeichneten Gebietes.
-Und darin klingen nicht minder geschicht-
-liche Vorgänge aus den Zeiten der Semiramis nach,
-Vorgänge, die zudem den Schlüssel zur Entstehung
-der Sage in sich bergen.
-Mit den Medern, dem ersten arischen Volk, \
-das von Norden her im Osttigrislande erschien, ist
-zuerst der Schwiegervater der Schammuramat in. x
-feindliche Berührung gekommen; ebenso hat ihr Ge-
-mahl einen, ihr Sohn dagegen als König acht Feld-
-u züge gegen sie richten müssen.
-Die Kämpfe mit den Bewohnern des späteren
-Armeniens wiederum sind ein der Sage von Ninos .
-und Semiramis besonders fest und zäh anhaftender
-Zug; er begegnet uns noch in einem neuerdings auf .
-einem Papyrus in Ägypten gefundenen Ninos-Roman 
+Zwei Völkerschaften treten in dem sagenhaften Berichte bei Ktesias besonders hervor, im Osten die Meder, im Norden die damaligen Bewohner des nachmals als Armenien bezeichneten Gebietes.
 
-wieder, der im übrigen die Personen und Motive der
-Sage gründlich umgestaltet. Namentlich ist aus Ninos
-ein tugend- und empfindsamer Jüngling, aus seiner
-Erwählten, die schlechtweg als „die Maid“ ohne
-Namensnennung bezeichnet wird, das Musterbild
-einer sittigen Jungfrau geworden. Trotzdem aber
-läßt der Dichter, der offenbar gar keine Vorstellung
-von den ungeheuren Schwierigkeiten hat, die ein
-Kriegszug von Assyrien aus gegen das armenische
-Bergland mit sich brachte, den Ninos mit seinen
-150 Elefanten gegen Armenien ziehen. Ktesias aber
-läßt nicht nur --- eine im Grunde gewiß richtige Be-
-obachtung --- die Semiramis das Steinmaterial zu
-den assyrischen Stelen den armenischen Gebirgen
-entnehmen, sondern er berichtet auch, daß Ninos,
-ehe er gegen die Meder zog, die Bewohner Ar-
-meniens und ihren König besiegt, dann aber diesem
-die Herrschaft großmütig belassen habe. Darin
-spiegelt sich in eigentümlicher, aber deutlicher Weise
-die geschichtliche Wahrheit wieder, daß von allen
-Völkern und Reichen Vorderasiens in der Tat nur
-_ ein zu den Zeiten der Semiramis im armenischen
-Berglande blühendes Reich den Assyrern nachhaltig
-widerstanden und ihnen gegenüber seine Selbständig-
-keit bis zu Ende aufrecht erhalten hat.
+Und darin klingen nicht minder geschichtliche Vorgänge aus den Zeiten der Semiramis nach, Vorgänge, die zudem den Schlüssel zur Entstehung der Sage in sich bergen.
 
-Das Quellgebiet der Ströme, die die Lebensader
-ihres Landes bildeten, mußte Babyloniern und Assy-
-rern von jeher bedeutsam und verlockend erscheinen,
-schon weil die wichtigste Erscheinung im Leben der
-Ströme und des Landes, das jährliche gewaltige An-
-schwellen der Wassermassen, durch die Schnee-
+Mit den Medern, dem ersten arischen Volk, das von Norden her im Osttigrislande erschien, ist zuerst der Schwiegervater der Schammuramat in feindliche Berührung gekommen; ebenso hat ihr Gemahl einen, ihr Sohn dagegen als König acht Feldzüge gegen sie richten müssen.
 
-schmelze in den armenischen Gebirgen --- wie das
-auch Herodot betont --- veranlaßt wurde. Die uralte
-Verehrung der Quellen und die Schwierigkeit des
-Vordringens zu ihnen gaben einen weiteren Anreiz
-. zu kriegerischen Entdeckungszügen, die, schon bald
-nachdem Assyrien um die Mitte des zweiten vor-
-christlichen Jahrtausends sich von Babylonien unab-
-hängig gemacht hatte, zum Teil mit bedeutendem
-Erfolge ins Werk gesetzt wurden.
-Gerade zu den Zeiten der Semiramis aber voll-
-zog sich im Quellgebiet der beiden Ströme eine be-
-deutsame Veränderung Ein neues, wahrscheinlich
-von Westen eingewandertes, freiheitliebendes und
-kampfesfrohes Volk, die Urartäer, unter einem
-kraftvollen und zielbewußten Herrscherhause, ver-
-einigte die Nairi-Völker, die bisher zerstreuten Stämme
-des armenischen Berglandes, zu einem mächtigen
-Reiche Urartu, dessen Name in einer etwas ab-
-weichenden Form uns allen von Jugend an wohl-
-vertraut ist: blieb doch auf einem Berge des Landes
-Ararat die Arche Noä haften.
-Die Urartäer, die als Hauptgott den Chaldis ver-
-ehrten und deshalb auch als Chalder bezeichnet
-werden, haben von den Assyrern, deren Lehrmeister
-sie in vieler Hinsicht geworden sind, die Keilschrift
-fast unverändert übernommen und für ihre, freilich
-mit dem Assyrischen nicht verwandte Sprache ver-
-wendet. So kommt es, daß den assyrischen Berichten
-aus den Zeiten der Semiramis gleichzeitige, urartäische
-Nachrichten, sie kontrollierend, gegenüberstehen. Das
-ist von hoher Wichtigkeit; denn eine einigermaßen
+Die Kämpfe mit den Bewohnern des späteren Armeniens wiederum sind ein der Sage von Ninos und Semiramis besonders fest und zäh anhaftender Zug; er begegnet uns noch in einem neuerdings auf einem Papyrus in Ägypten gefundenen Ninos-Roman wieder, der im übrigen die Personen und Motive der Sage gründlich umgestaltet. Namentlich ist aus Ninos ein tugend- und empfindsamer Jüngling, aus seiner Erwählten, die schlechtweg als "die Maid" ohne Namensnennung bezeichnet wird, das Musterbild einer sittigen Jungfrau geworden. Trotzdem aber läßt der Dichter, der offenbar gar keine Vorstellung von den ungeheuren Schwierigkeiten hat, die ein Kriegszug von Assyrien aus gegen das armenische Bergland mit sich brachte, den Ninos mit seinen 150 Elefanten gegen Armenien ziehen. Ktesias aber läßt nicht nur --- eine im Grunde gewiß richtige Beobachtung --- die Semiramis das Steinmaterial zu den assyrischen Stelen den armenischen Gebirgen entnehmen, sondern er berichtet auch, daß Ninos, ehe er gegen die Meder zog, die Bewohner Armeniens und ihren König besiegt, dann aber diesem die Herrschaft großmütig belassen habe. Darin spiegelt sich in eigentümlicher, aber deutlicher Weise die geschichtliche Wahrheit wieder, daß von allen Völkern und Reichen Vorderasiens in der Tat nur ein zu den Zeiten der Semiramis im armenischen Berglande blühendes Reich den Assyrern nachhaltig widerstanden und ihnen gegenüber seine Selbständigkeit bis zu Ende aufrecht erhalten hat.
 
-objektive Würdigung fremdländischer Verhältnisse ist
-mit dem Charakter der assyrischen Königsinschriften
-ebenso unverträglich wie mit dem der ägyptischen
-und römischen Berichte. Jeder Widerstand gegen das
-Vordringen Assurs wird als Rebellion bezeichnet.
-Angeblich sind die Assyrer immer erfolgreiche Sieger.
-Wie viele Niederlagen und Mißerfolge dabei vertuscht
-werden, kann man aus ihren Berichten allein nur ge-
-legentlich ahnen.
+Das Quellgebiet der Ströme, die die Lebensader ihres Landes bildeten, mußte Babyloniern und Assyrern von jeher bedeutsam und verlockend erscheinen, schon weil die wichtigste Erscheinung im Leben der Ströme und des Landes, das jährliche gewaltige Anschwellen der Wassermassen, durch die Schneeschmelze in den armenischen Gebirgen --- wie das auch Herodot betont --- veranlaßt wurde. Die uralte Verehrung der Quellen und die Schwierigkeit des Vordringens zu ihnen gaben einen weiteren Anreiz zu kriegerischen Entdeckungszügen, die, schon bald nachdem Assyrien um die Mitte des zweiten vorchristlichen Jahrtausends sich von Babylonien unabhängig gemacht hatte, zum Teil mit bedeutendem Erfolge ins Werk gesetzt wurden.
 
-So sind wir über die urartäisch-assyrischen Be-
-ziehungen zur Zeit der Semiramis besonders ausgiebig
-unterrichtet. Da es nun an gleichzeitigen medischen
-Nachrichten, auf die wir für unsre Betrachtung noch
-größeren Wert zu legen hätten, völlig mangelt, so
-bleiben wir, wenn wir uns die kampferfüllte Zeit der
-Semiramis möglichst lebendig vor Augen führen wollen,
-darauf angewiesen, die kriegerischen Verwicklungen
-zwischen den Assyrern und den Urartäern, den vorarme-
-nischen Bewohnern des Quellgebiets der beiden Ströme,
-in den Mittelpunkt unsrer Betrachtung zu rücken.
+Gerade zu den Zeiten der Semiramis aber vollzog sich im Quellgebiet der beiden Ströme eine bedeutsame Veränderung Ein neues, wahrscheinlich von Westen eingewandertes, freiheitliebendes und kampfesfrohes Volk, die Urartäer, unter einem kraftvollen und zielbewußten Herrscherhause, vereinigte die Naïri-Völker, die bisher zerstreuten Stämme des armenischen Berglandes, zu einem mächtigen Reiche Urartu, dessen Name in einer etwas abweichenden Form uns allen von Jugend an wohlvertraut ist: blieb doch auf einem Berge des Landes Ararat die Arche Noä haften.
 
-Es kommt hinzu, daß eine Dankespflicht gegen
-einen deutschen Pionier der Keilschriftforschung, der
-als ein Opfer wissenschaftlichen Forschungsdranges
-und Wagemutes sein Leben gelassen hat, die Blicke
-in diese Richtung zwingt.
+Die Urartäer, die als Hauptgott den Chaldis verehrten und deshalb auch als Chalder bezeichnet werden, haben von den Assyrern, deren Lehrmeister sie in vieler Hinsicht geworden sind, die Keilschrift fast unverändert übernommen und für ihre, freilich mit dem Assyrischen nicht verwandte Sprache verwendet. So kommt es, daß den assyrischen Berichten aus den Zeiten der Semiramis gleichzeitige, urartäische Nachrichten, sie kontrollierend, gegenüberstehen. Das ist von hoher Wichtigkeit; denn eine einigermaßen objektive Würdigung fremdländischer Verhältnisse ist mit dem Charakter der assyrischen Königsinschriften ebenso unverträglich wie mit dem der ägyptischen und römischen Berichte. Jeder Widerstand gegen das Vordringen Assurs wird als Rebellion bezeichnet. Angeblich sind die Assyrer immer erfolgreiche Sieger. Wie viele Niederlagen und Mißerfolge dabei vertuscht werden, kann man aus ihren Berichten allein nur gelegentlich ahnen.
 
-Lange ehe die französischen und englischen Aus-
-grabungen im Zweistromlande begonnen wurden, hat
+So sind wir über die urartäisch-assyrischen Beziehungen zur Zeit der Semiramis besonders ausgiebig unterrichtet. Da es nun an gleichzeitigen medischen Nachrichten, auf die wir für unsre Betrachtung noch größeren Wert zu legen hätten, völlig mangelt, so bleiben wir, wenn wir uns die kampferfüllte Zeit der Semiramis möglichst lebendig vor Augen führen wollen, darauf angewiesen, die kriegerischen Verwicklungen zwischen den Assyrern und den Urartäern, den vorarmenischen Bewohnern des Quellgebiets der beiden Ströme, in den Mittelpunkt unsrer Betrachtung zu rücken.
 
-_ ein junger hessischer Gelehrter, Professor Eduard
-Schulz, auf Anregung Karl Ritters Armenien be-
+Es kommt hinzu, daß eine Dankespflicht gegen einen deutschen Pionier der Keilschriftforschung, der als ein Opfer wissenschaftlichen Forschungsdranges und Wagemutes sein Leben gelassen hat, die Blicke in diese Richtung zwingt.
 
-reist (1828), und dort zahlreiche Keilschriften entdeckt
+Lange ehe die französischen und englischen Ausgrabungen im Zweistromlande begonnen wurden, hat ein junger hessischer Gelehrter, Professor Eduard Schulz, auf Anregung Karl Ritters Armenien bereist (1828), und dort zahlreiche Keilschriften entdeckt und kopiert, welche in der Umgebung von Van, zumeist in Felsen gehauen, sich vorfanden und der Semiramis zugeschrieben wurden.
 
-und kopiert, welche in der Umgebung von Van, zu-
-meist in Felsen gehauen, sich vorfanden und der
-Semiramis zugeschrieben wurden.
+Und noch ein andres geschichtliches Interesse wohnt diesem einstigen Schauplatze der assyrischurartäischen Kriegszüge inne. Hier war es, wo unser Moltke, als Offizier in türkischen Diensten, in den Kurdenkriegen die ersten Erfahrungen in der praktischen Strategie sammelte, als deren Meister er sich --- Deutschland zum Heile --- ein Menschenalter später erweisen sollte. Er war es auch, der, als er im Jahre 1840 von der türkischen Provinzialhauptstadt Charput zum Euphrat gezogen kam, dort an einem Felsen die westlichste und eine der allerwichtigstenvorarmenischen Keilinschriften entdeckte, in der Nähe einer nach urartäischer Weise in den lebendigen Fels gehauenen Festungsanlage mit einem künstlichen Durchblick nach dem benachbarten wichtigen Euphrat-Übergang. (Abb. S. 15).
 
-Und noch ein andres geschichtliches Interesse
-wohnt diesem einstigen Schauplatze der assyrisch-
-urartäischen Kriegszüge inne. Hier war es, wo unser
-Moltke, als Offizier in türkischen Diensten, in den
-Kurdenkriegen die ersten Erfahrungen in der prak-
-tischen Strategie sammelte, als deren Meister er sich
---- Deutschland zum Heile --- ein Menschenalter später
-erweisen sollte. Er war es auch, der, als er im Jahre
-1840 von der türkischen Provinzialhauptstadt Charput
+Ich selbst aber bin in der glücklichen Lage, die Schauplätze dieser Züge und Kämpfe und mancher Altertümer, die sich aus dieser Urzeit erhalten haben, aus eigener Anschauung zu schildern und abzubilden, wie ich sie auf einer mit Förderung und Unterstützung Sr. Majestät des Kaisers 1898/99 unternommenen Forschungsreise vorgefunden und aufgenommen habe.
 
-zum Euphrat gezogen kam, dort an einem Felsen die
-westlichste und eine der allerwichtigstenvorarmenischen
-Keilinschriften entdeckte, in der Nähe einer nach
-urartäischer Weise in den lebendigen Fels gehauenen
-Festungsanlage mit einem künstlichen Durchblick nach
-dem benachbarten wichtigen Euphrat - Übergang.
-(Abb. S. 15).
+[Künstlicher Durchblick an einer chaldischen Felsenfeste. (Zeichnung von Franz Frohse).]()
 
-Ich selbst aber bin in der glücklichen Lage, die
-Schauplätze dieser Züge und Kämpfe und mancher
-Altertümer, die sich aus dieser Urzeit erhalten haben,
+Von meinen Routen kommt, entsprechend den beiden Hauptkriegsschauplätzen, für uns besonders das Stück zwischen Niniveh und dem Gebiet der beiden Tigrisquellströme, --- des Ost-Tigris oder Bohtan-su und des bei Argana zwischen Charput und Dijarbekir entspringenden West-Tigris --- und ferner das Gelände zwischen dem Van-See und dem Urmia-See in Betracht. --- Folgen wir zunächst Salmanassar 3., dem Schwiegervater der Semiramis, auf seinen Kriegszügen gegen die Urartäer.
 
-aus eigener Anschauung zu schildern und abzubilden,
-wie ich sie auf einer mit Förderung und Unterstützung
-Sr. Majestät des Kaisers 1898/99 unternommenen
-Forschungsreise vorgefunden und aufgenommen habe.
+[Blick in das Tal des Bohtau-su (Kentrites), südlich von Söört. (Zeichnung von Franz Frohse).]()
 
-Von meinen Routen kommt, entsprechend den
-beiden Hauptkriegsschauplätzen, für uns besonders
-das Stück zwischen Niniveh und dem Gebiet der
-beiden Tigrisquellströme, --- des Ost-Tigris oder
-Bohtan-su und des bei Argana zwischen Charput und
-Dijarbekir entspringenden West-Tigris --- und ferner das
-
-Blick in das Tal des Bohtan-su (Kentrites), südlich von Söört.
-(Zeichnung von Franz Frohse). .
 Bei Djezireh, in dessen Nachbarschaft der Tigris
 überschritten wird, blicken wir nordwärts zum Djebel
 Diudi, der --- zu den südlichen Randgebirgen des
