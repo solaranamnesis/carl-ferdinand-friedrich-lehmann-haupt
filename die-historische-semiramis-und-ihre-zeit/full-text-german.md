@@ -84,97 +84,22 @@ Von meinen Routen kommt, entsprechend den beiden Hauptkriegsschauplätzen, für 
 
 [Blick in das Tal des Bohtau-su (Kentrites), südlich von Söört. (Zeichnung von Franz Frohse).]()
 
-Bei Djezireh, in dessen Nachbarschaft der Tigris
-überschritten wird, blicken wir nordwärts zum Djebel
-Diudi, der --- zu den südlichen Randgebirgen des
-Landes Ararat gehörig --- vielfach als der Gebirgs-
-stock gilt, an dem das Schiff des Xisuthros, des baby-
-lonischen Noah, durch Cyklone und Springfluten aus
-dem persischen Golfe nach Norden getrieben, einst-
-mals haften geblieben ist. Eine großartige Brücken-
-ruine aus mongolischer oder persischer Zeit gibt heute
-einen eindrucksvollen Rahmen für das herrliche Land-
-schaftsbild ab. (Abb. S. 1). .
-Den Ost-Tigris südlich von Söört zu überschreiten,
-erweist sich wegen der Steilheit der Uferberge zu
-beiden Seiten, zwischen denen der Strom in tiefer
-Schlucht dahinfließt, als unmöglich. Erst westlich von
-Söört, kurz oberhalb der Vereinigung des Bohtan-su
-mit dem West-Tigris, kann das urartäische Ufer er-
+Bei Djezîreh, in dessen Nachbarschaft der Tigris überschritten wird, blicken wir nordwärts zum Djebel Djudi, der --- zu den südlichen Randgebirgen des Landes Ararat gehörig --- vielfach als der Gebirgsstock gilt, an dem das Schiff des Xisuthros, des babylonischen Noah, durch Cyklone und Springfluten aus dem persischen Golfe nach Norden getrieben, einstmals haften geblieben ist. Eine großartige Brückenruine aus mongolischer oder persischer Zeit gibt heute einen eindrucksvollen Rahmen für das herrliche Landschaftsbild ab. (Abb. S. 1).
 
-reicht werden, in der Nachbarschaft der Furt, die im
-Jahre 404 die zehntausend Griechen auf ihrem Rück-
-zuge benutzt haben. Und an dem Zusammenfluß der
-beiden Tigrisarme wird Rast und Umschau gehalten.
-Schon Salmanassars III. Vater erwähnt die Stadt
-und Feste Tilla unter dem Namen, den sie noch
-heute führt.
+Den Ost-Tigris südlich von Söört zu überschreiten, erweist sich wegen der Steilheit der Uferberge zu beiden Seiten, zwischen denen der Strom in tiefer Schlucht dahinfließt, als unmöglich. Erst westlich von Söört, kurz oberhalb der Vereinigung des Bohtan-su mit dem West-Tigris, kann das urartäische Ufer erreicht werden, in der Nachbarschaft der Furt, die im Jahre 404 die zehntausend Griechen auf ihrem Rückzuge benutzt haben. Und an dem Zusammenfluß der beiden Tigrisarme wird Rast und Umschau gehalten.
 
-Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei Till.
-(Zeichnung von Lucy du Bois-Reymond).
+Schon Salmanassars 3. Vater erwähnt die Stadt und Feste Tilla unter dem Namen, den sie noch heute führt.
 
-Von der Südspitze der felsigen Halbinsel erblickt
-man tief unter sich --- zwei großen Silberschlangen
-vergleichbar, die ihrer Vereinigung eher zu wider-
-streben als zuzueilen scheinen und deshalb kurz zuvor
-noch einmal sich winden und krümmen, --- zur Rechten
-und gerade von Westen kommend den westlichen
+[Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei Till. (Zeichnung von Lucy du Bois-Reymond).]()
 
-Tigris, zur Linken von Norden her fließend den
-Bohtan-su. Eben an der Südspitze von Till, die sich
-als letztes Bollwerk zwischen sie schiebt, vermählt
-sich das häufig rotgefärbte Wasser des Bohtan-su mit
-dem hellgrünlichgrauen des West-Tigris. Gemeinsam
-machen sie dann einen mächtigen, edel geschwungenen
-Bogen nach Süden --- der Strom ist hier kaum weniger
-als !/s Kilometer breit ---, um alsdann in südöstlicher
-Richtung, von Felsen eingeengt und den Blicken bald
-entzogen, weiter zu strömen; von der Schönheit des
-Farbenspiels, besonders zur Abendzeit, läßt sich schwer
-ein Begriff geben. Bei und nach Sonnenuntergang
-lagen hoch über dem West-Tigris die Wolken in Rot-
-violett und Gold getaucht; der ganze Strom, wie er
-vor Till vorbeifließt, war rosig gefärbt, so daß das
-nicht mehr beleuchtete rote Wasser des Bohtan-su
-dagegen fahl und farblos erschien. Das im Osten
-lagernde schwere Gewölk erstrahlte mit den Bergen
-darunter in tiefdunklem Purpurglanze.
+Von der Südspitze der felsigen Halbinsel erblickt man tief unter sich --- zwei großen Silberschlangen vergleichbar, die ihrer Vereinigung eher zu widerstreben als zuzueilen scheinen und deshalb kurz zuvor noch einmal sich winden und krümmen, --- zur Rechten und gerade von Westen kommend den westlichen Tigris, zur Linken von Norden her fließend den Bohtan-su. Eben an der Südspitze von Till, die sich als letztes Bollwerk zwischen sie schiebt, vermählt sich das häufig rotgefärbte Wasser des Bohtan-su mit dem hellgrünlichgrauen des West-Tigris. Gemeinsam machen sie dann einen mächtigen, edel geschwungenen Bogen nach Süden --- der Strom ist hier kaum weniger als 1/2 Kilometer breit ---, um alsdann in südöstlicher Richtung, von Felsen eingeengt und den Blicken bald entzogen, weiter zu strömen; von der Schönheit des Farbenspiels, besonders zur Abendzeit, läßt sich schwer ein Begriff geben. Bei und nach Sonnenuntergang lagen hoch über dem West-Tigris die Wolken in Rotviolett und Gold getaucht; der ganze Strom, wie er vor Till vorbeifließt, war rosig gefärbt, so daß das nicht mehr beleuchtete rote Wasser des Bohtan-su dagegen fahl und farblos erschien. Das im Osten lagernde schwere Gewölk erstrahlte mit den Bergen darunter in tiefdunklem Purpurglanze.
 
-Der West-Tigris ist von Dijarbekir ab schiffbar.
-Von Till aus sah ich zwei mit Säcken schwer beladene
-Keleks dicht hinter einem Felsen, den sie geschickt
-passiert hatten, mit großen Rudern gesteuert, von
-Westen her den Gesamt-Tigris hinabgleiten. Auch die
-Bewohner von Till bedienten sich dieser Gefährte
-zum Übersetzen über den Bohtan-su und bei der
-Fischerei.
+Der West-Tigris ist von Dijarbekir ab schiffbar. Von Till aus sah ich zwei mit Säcken schwer beladene Keleks dicht hinter einem Felsen, den sie geschickt passiert hatten, mit großen Rudern gesteuert, von Westen her den Gesamt-Tigris hinabgleiten. Auch die Bewohner von Till bedienten sich dieser Gefährte zum Übersetzen über den Bohtan-su und bei der Fischerei.
 
-Ihre Herstellung ist einfach genug. Aufgeblasene
-Hammelhäute (sog. Burdjuks) werden unter einem
-Gerüst, das bei kleineren Keleks aus Weidenruten
-oder sonstigem biegsamen Material besteht, ange-
+[Bau eines Kelek. (Zeichnung von Franz Frohse).]()
 
-bracht; darüber wird eine Schicht von Brettern und
-auf diese Stroh, Schilf oder Moos gelegt, und das
-Fahrzeug ist zur Aufnahme von Personen oder Lasten
-bereit. Die Größe wie auch die Festigkeit des Ge-
-rüstes schwankt je nach der Zahl der Schläuche; es
-können für größere Fahrten und Warentransporte
-ihrer bis 300 und mehr zusammengefügt werden. Das
-Kelek, gewiß in mancher Hinsicht ein recht unbe-
+Ihre Herstellung ist einfach genug. Aufgeblasene Hammelhäute (sog. Burdjuks) werden unter einem Gerüst, das bei kleineren Keleks aus Weidenruten oder sonstigem biegsamen Material besteht, angebracht; darüber wird eine Schicht von Brettern und auf diese Stroh, Schilf oder Moos gelegt, und das Fahrzeug ist zur Aufnahme von Personen oder Lasten bereit. Die Größe wie auch die Festigkeit des Gerüstes schwankt je nach der Zahl der Schläuche; es können für größere Fahrten und Warentransporte ihrer bis 300 und mehr zusammengefügt werden. Das Kelek, gewiß in mancher Hinsicht ein recht unbequemes Gefährt, hat doch auch seine Vorteile: es bewährt sich namentlich auf Gebirgsströmen von ungleichmäßiger Tiefe und wechselnder Stromgeschwindigkeit. Hier trägt es seine Insassen, wie es vor allem unser Moltke erprobt hat, glücklich durch die Stromschnellen hindurch, wenn es auch, vom Wirbel erfaßt und beständig herumgedreht, ihnen ein gründliches und bei der herrschenden Hitze meist nicht unwillkommenes Bad verschafft.
 
-Bau eines Kelek.
-(Zeichnung von Franz Frohse).
-quemes Gefährt, hat doch auch seine Vorteile: es
-bewährt sich namentlich auf Gebirgsströmen von
-ungleichmäßiger Tiefe und wechselnder Stromge-
-schwindigkeit. Hier trägt es seine Insassen, wie es
-vor allem unser Moltke erprobt hat, glücklich durch
-die Stromschnellen hindurch, wenn es auch, vom
-Wirbel erfaßt und beständig herumgedreht, ihnen
-
-ein gründliches und bei der herrschenden Hitze meist
-nicht unwillkommenes Bad verschafft.
 Mit dem Kelek aber ragt wiederum die älteste
 Zeit lebendig in die Gegenwart hinein. Genau so
 wie sie heute den Tigris hinabfahren, waren die Fahr- Ä
