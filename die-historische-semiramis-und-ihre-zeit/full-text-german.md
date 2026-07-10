@@ -130,345 +130,88 @@ Dieser Vorgang tritt uns auch im Bilde entgegen auf den Kupferbeschlägen, die d
 
 Auf den ersten Blick sieht man, daß es sich um eine von der bisher geschilderten gänzlich verschiedene Örtlichkeit, um eine aus dem Felsen, in einzelnen kleinen Quellhöhlungen, im übrigen aber frei und unmittelbar hervortretende Quelle handelt.
 
-Für diese Verschiedenheit der Örtlichkeiten er-
-geben sich nun --- und zwar wiederum durch In-
-einandergreifen heutiger Beobachtungen an Ort und
-Stelle und inschriftlicher Zeugnisse --- noch weitere
-Beweise. Fast allgemein wurde heutzutage ange-
-nommen, daß der Wasserlauf, der jenem Felsentor
-entströmt, im Innern des Felsens entspringe, so daß
-man vor einer Quellgrotte zu stehen glaubte. Und
-der Wunsch, bis zu der Stelle vorzudringen, wo in
+Für diese Verschiedenheit der Örtlichkeiten ergeben sich nun --- und zwar wiederum durch Ineinandergreifen heutiger Beobachtungen an Ort und Stelle und inschriftlicher Zeugnisse --- noch weitere Beweise. Fast allgemein wurde heutzutage angenommen, daß der Wasserlauf, der jenem Felsentor entströmt, im Innern des Felsens entspringe, so daß man vor einer Quellgrotte zu stehen glaubte. Und der Wunsch, bis zu der Stelle vorzudringen, wo in dem Innern der Höhle das Wasser hervortritt, schien ebenso berechtigt wie unerfüllbar. Ich war daher sehr überrascht, als eines Tages mein ortskundiger kurdischer Begleiter den Ursprungsort des Flusses als bekannt erwähnte und auf meine erstaunte Frage sich bereit erklärte, mich ihm näher zu bringen. Der Felsen, dem der Fluß entströmt, trägt eine vorarmenische Felsenfestung und zeigt die für die Urartäer charakteristischen Felsentreppen und Felsenkammern. (Abb. S. 26). Durch einen natürlichen giebelförmigen Durchgang in mittlerer Höhe des Felsens (Abb. S. 26) gelangen wir auf dessen nördliche Seite, und zwischen blühenden Weißdornsträuchern aufwärts steigend zu einer Felsenkanzel, von der sich in der Tiefe, soweit das Auge reicht, ein Gewässer im offenen Bette auf mich zufließen sah. Rechts neben mir und hinter mir aber öffnete sich ein enges, düsteres Felsentor, durch das der Bach mit ziemlich scharfer Wendung in den Berg eintritt und darin verschwindet. So haben wir es denn nicht mit einer Quellgrotte zu tun, sondern mit einem Felsentunnel, den der Fluß nach längerem freien Laufe durchströmt.
 
-Der westliche Teil des Tigristunnelfelsens ven Süden gesehen. Im Vorder-
-srunde eine Felsentreppe, links davon ein Türeinschnitt.
-| (Zeichnung von Franz Frohse).
-dem Innern der Höhle das Wasser hervortritt, schien
-ebenso berechtigt wie unerfüllbar. Ich war daher
-sehr überrascht, als eines Tages mein ortskundiger
-kurdischer Begleiter den Ursprungsort des Flusses als
+[Der westliche Teil des Tigristunnelfelsens von Süden gesehen. Im Vordergrunde eine Felsentreppe, links davon ein Türeinschnitt. (Zeichnung von Franz Frohse).]()
 
-bekannt erwähnte und auf meine erstaunte Frage sich
-bereit erklärte, mich ihm näher zu bringen. Der Felsen,
-dem der Fluß entströmt, trägteine vorarmenischeFelsen-
-festung und zeigtdie für die Urartäer charakteristischen
-Felsentreppen und Felsenkammern. (Abb. S.26). Durch
-einen natürlichen giebelförmigen Durchgang in mittlerer
+[Natürlicher Durchgang im Tunnelfelsen. (Zeichnung von Lucy du Bois-Reymond).]()
 
-Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel.
-(Zeichnung von Lucy du Bois-Reymond).
+[Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel. (Zeichnung von Lucy du Bois-Reymond).]()
 
-Höhe des Felsens (Abb. S. 26) gelangen wir auf dessen
-nördliche Seite, und zwischen blühenden Weißdorn-
-sträuchern aufwärts steigend zu einer Felsenkanzel, -
-von der sich in der Tiefe, soweit das Auge reicht, ein
-Gewässer im offenen Bette auf mich zufließen sah.
-Rechts neben mir und hinter mir aber Öffnete sich
-ein enges, düsteres Felsentor, durch das der Bach mit
-ziemlich scharfer Wendung in den Berg eintritt und
-darin verschwindet. So haben wir es denn nicht mit
-einer Quellgrotte zu tun, sondern mit einem Felsen-
-tunnel, den der Fluß nach längerem freien Laufe
-durchströmt.
-
-In Höhlen wohnt der Drachen alte Brut,
+In Höhlen wohnt der Drachen alte Brut,  
 Es stürzt der Fels und über ihn die Flut!
-Daß der Durchbruch dereinst erheblich weiter
-aufwärts begonnen haben, der Tunnel an seinem
-‘oberen Ende durch Einsturz in Trümmer gegangen
-sein mußte, zeigten die reichlich verstreuten Felsstücke.
-Diese benutzend drang ich in den Tunnel ein, als
-| plötzlich der mich begleitende türkische Kavallerist,
-‘ein Mitglied meiner Eskorte, mir türkisch in unge-
-wohnt respektloser Weise zurief: „Mach, daß du weg-
-kommst!“ und diese seltsame Aufforderung mit sehr
-nachdrücklichen Gebärden begleitete. Alsbald sah
-ich ihn ein lebhaftes Bombardement mit Steinen auf
-eine gewaltige, braungrün schillernde Schlange er-
-öffnen, die zur Spirale gerollt dalag, die größte ihrer
-Art, die ich auf meiner Reise sah. Leider verpaßte
-ich den Augenblick, in dem sie es vorzog, sich durch
-die Flucht unter ein Felsstück den Steinwürfen zu
-entziehen.
 
-Die Tatsache aber, daß es sich hier um einen
-von einem Tigrisarm durchflossenen Tunnel, nicht um
-eine Quellgrotte handelte, war Salmanassar III. be-
-kannt. Denn zu eben dem Regierungsjahre, an dem
-er die Stätte besuchte und seine Inschriften dort an-
-brachte, berichten seine in Assyrien niederge-
-schriebenen Annalen, er sei an der Quelle des Tigris,
-am Ausgang seines Tunnels gewesen. Das bisher
+Daß der Durchbruch dereinst erheblich weiter aufwärts begonnen haben, der Tunnel an seinem oberen Ende durch Einsturz in Trümmer gegangen sein mußte, zeigten die reichlich verstreuten Felsstücke. Diese benutzend drang ich in den Tunnel ein, als plötzlich der mich begleitende türkische Kavallerist, ein Mitglied meiner Eskorte, mir türkisch in ungewohnt respektloser Weise zurief: "Mach, daß du wegkommst!" und diese seltsame Aufforderung mit sehr nachdrücklichen Gebärden begleitete. Alsbald sah ich ihn ein lebhaftes Bombardement mit Steinen auf eine gewaltige, braungrün schillernde Schlange eröffnen, die zur Spirale gerollt dalag, die größte ihrer Art, die ich auf meiner Reise sah. Leider verpaßte ich den Augenblick, in dem sie es vorzog, sich durch die Flucht unter ein Felsstück den Steinwürfen zu entziehen.
 
-nicht richtig verstandene assyrische Wort für Tunnel,
-nakäbu lebt noch heute in dem Namen Ngüb eines
-aus assyrischer Zeit stammenden Tunnels fort, der
-zur Ableitung des Wassers des großen Zab nach der
-assyrischen Hauptstadt Kalach von Salmanassars II.
-Vater angelegt und somit bereits zu den Zeiten der
-Semiramis bestehend, später von Assarhaddon (681
-bis 668 v. Chr.) umgebaut wurde. Und dieselbe Be-
+Die Tatsache aber, daß es sich hier um einen von einem Tigrisarm durchflossenen Tunnel, nicht um eine Quellgrotte handelte, war Salmanassar 3. bekannt. Denn zu eben dem Regierungsjahre, an dem er die Stätte besuchte und seine Inschriften dort anbrachte, berichten seine in Assyrien niedergeschriebenen Annalen, er sei an der Quelle des Tigris, am Ausgang seines Tunnels gewesen. Das bisher nicht richtig verstandene assyrische Wort für Tunnel, nakâbu lebt noch heute in dem Namen Ngûb eines aus assyrischer Zeit stammenden Tunnels fort, der zur Ableitung des Wassers des großen Zab nach der assyrischen Hauptstadt Kalach von Salmanassars 3. Vater angelegt und somit bereits zu den Zeiten der Semiramis bestehend, später von Assarhaddon (681 bis 668 v. Chr.) umgebaut wurde. Und dieselbe Bezeichnung für den Tunnel findet sich in der althebräischen Inschrift, die in unsern Tagen an dem zum Siloah-Teich führenden Durchstich aus König Hiskias Zeiten entdeckt worden ist. Dieser Tigristunnel spielt auch in den teils richtigen, teils verfehlten Anschauungen, die wir bei den klassischen Autoren über den Oberlauf des Tigris finden, eine wesentliche Rolle.
 
-Assyrische Krieger in bergigem Gelände.
-zeichnung für den Tunnel findet sich in der alt-
-hebräischen Inschrift, die in unsern Tagen an dem
-zum Siloah-Teich führenden Durchstich aus König
-Hiskias Zeiten entdeckt worden ist. Dieser Tigris-
-tunnel spielt auch in den teils richtigen, teils verfehlten
-Anschauungen, die wir bei den klassischen Autoren
-über den Oberlauf des Tigris finden, eine wesentliche
-Rolle.
+[Assyrische Krieger in bergigem Gelände.]()
 
-Kampf zwischen Assyrern und Urartäern. (Palasttore von Balawat.).
-Der Grund, warum der Schwiegervater der Se-
-miramis wider besseres Wissen den Ausgang des
-Tunnels zur Tigrisquelle stempelt, ist leicht gefunden.
-Salmanassar III. war im Norden und Nordwesten
-trotz mehrfacher Siege nichts weniger als erfolgreich
-gewesen. Das Gebiet um die eigentliche, westlicher
-belegene Tigrisquelle, die er noch im siebenten Re-
-gierungsjahre hatte besuchen können, war inzwischen
-den Assyrern im Kampfe mit den Urartäern verloren
-gegangen, und so mußte der weit östlichere Tigris-
-tunnel-Ausgang an ihre Stelle treten. ---
-. Die schwierigen Gebirgsmärsche, die die Assyrer
-vom Tigristunnel zum Euphrat und weiter durch das
-i armenische Hochland führten, haben sie uns in
-Worten wiederholt geschildert, und gelegentlich, wenn
-auch recht unbehilflich, im Bilde (s. S. 29) dargestellt.
-Durch die Torbeschläge von Balawat, die uns
-Assyrer und Urartäer im Handgemenge zeigen, lernen
-wir die Bewaffnung der letzteren kennen, --- nur
-Speer und Wurfspieß, im Gegensatz zu den mit
-Schwert und Bogen ausgestatteten Assyrern, aber
-in Übereinstimmung mit Xenophons späteren Schilde-
-rungen dieses Bergvolkes der Chalder, die er fälsch-
+[Kampf zwischen Assyrern und Urartäern. (Palasttore von Balawat).]()
 
-Opfer vor dem Königsbild und den Feldzeichen (Palasttore von Balawat).
-lich mit dem Namen der südbabylonischen Chaldäer
+Der Grund, warum der Schwiegervater der Semiramis wider besseres Wissen den Ausgang des Tunnels zur Tigrisquelle stempelt, ist leicht gefunden. Salmanassar 3. war im Norden und Nordwesten trotz mehrfacher Siege nichts weniger als erfolgreich gewesen. Das Gebiet um die eigentliche, westlicher belegene Tigrisquelle, die er noch im siebenten Regierungsjahre hatte besuchen können, war inzwischen den Assyrern im Kampfe mit den Urartäern verloren gegangen, und so mußte der weit östlichere Tigristunnel-Ausgang an ihre Stelle treten. ---
 
-bezeichnet. Und ferner beobachten wir, daß auf urar-
-täischer Seite zwei verschiedene Rassen, eine hoch-
-gewachsene, den Assyrern ebenbürtige, und eine
-wesentlich kleinere kämpfen (Abb. S. 30).
+Die schwierigen Gebirgsmärsche, die die Assyrer vom Tigristunnel zum Euphrat und weiter durch das armenische Hochland führten, haben sie uns in Worten wiederholt geschildert, und gelegentlich, wenn auch recht unbehilflich, im Bilde (s. S. 29) dargestellt.
 
-Das Feldzeichen --- das schon die Babylonier
-der ältesten Zeit verwendeten --- wurde auf diesen
-Kriegszügen mitgeführt: auch den Assyrern galt die
-Fahne als Symbol und Vertreter des Herrschers, bei
-dessen Bilde sie aufgepflanzt wird, und des Gottes,
-für den dieser und sie kämpften. Vor dem Königs-
-bild und dem Feldzeichen werden die Opfer darge-
-bracht.
+Durch die Torbeschläge von Balawat, die uns Assyrer und Urartäer im Handgemenge zeigen, lernen wir die Bewaffnung der letzteren kennen, --- nur Speer und Wurfspieß, im Gegensatz zu den mit Schwert und Bogen ausgestatteten Assyrern, aber in Übereinstimmung mit Xenophons späteren Schilderungen dieses Bergvolkes der Chalder, die er fälschlich mit dem Namen der südbabylonischen Chaldäer bezeichnet. Und ferner beobachten wir, daß auf urartäischer Seite zwei verschiedene Rassen, eine hochgewachsene, den Assyrern ebenbürtige, und eine wesentlich kleinere kämpfen (Abb. S. 30).
 
-Wie dann Salmanassar III. die urartäische Haupt-
+[Opfer vor dem Königsbild und den Feldzeichen (Palasttore von Balawat).]()
 
-stadt Arzaskun berennt und schließlich erstürmt,
-können uns die Reliefs aus dem Palaste seines
-Vaters veranschaulichen. Wir sehen die Belagerungs-
-maschine, den Widder, in Tätigkeit, deren Ansturm
+Das Feldzeichen --- das schon die Babylonier der ältesten Zeit verwendeten --- wurde auf diesen Kriegszügen mitgeführt: auch den Assyrern galt die Fahne als Symbol und Vertreter des Herrschers, bei dessen Bilde sie aufgepflanzt wird, und des Gottes, für den dieser und sie kämpften. Vor dem Königsbild und dem Feldzeichen werden die Opfer dargebracht.
 
-die Steine der Stadtmauer weichen müssen, bis eine
-Bresche von genügender Größe erzielt ist und der
-Sturm beginnen kann.
+Wie dann Salmanassar 3. die urartäische Hauptstadt Arzaskun berennt und schließlich erstürmt, können uns die Reliefs aus dem Palaste seines Vaters veranschaulichen. Wir sehen die Belagerungsmaschine, den Widder, in Tätigkeit, deren Ansturm die Steine der Stadtmauer weichen müssen, bis eine Bresche von genügender Größe erzielt ist und der Sturm beginnen kann.
 
-u Belagerungsmaschine.
-Die Gefangenen und die Beute werden hinweg-
-geführt. Große Schwierigkeiten bereitet der Trans-
-port eines riesigen Tongefässes, das mit vollem Recht
-als den Urartäern eigentümlich von Salmanassar dar-
-gestellt wird. Denn genau solche riesigen Krüge
-fanden sich bei unseren Ausgrabungen in den Maga-
-zinen der letzten Residenz der Chalderkönige --- der
-um 600 v. Chr. zerstörten Felsenburg Toprakkaleh bei
+[Belagerungsmaschine.]()
 
-Van.
+Die Gefangenen und die Beute werden hinweggeführt. Große Schwierigkeiten bereitet der Transport eines riesigen Tongefässes, das mit vollem Recht als den Urartäern eigentümlich von Salmanassar dargestellt wird. Denn genau solche riesigen Krüge fanden sich bei unseren Ausgrabungen in den Magazinen der letzten Residenz der Chalderkönige --- der um 600 v. Chr. zerstörten Felsenburg Toprakkaleh bei Van.
 
-Auch reichliche Vorräte an Eisen, in dessen Be-
-arbeitung die Chalder die Lehrmeister der Assyrer
-wie der Griechen geworden sind, werden damals wie
-später in den Hauptstädten aufgespeichert und von
-den Assyrern als gute Beute mitgeführt worden sein.
+Auch reichliche Vorräte an Eisen, in dessen Bearbeitung die Chalder die Lehrmeister der Assyrer wie der Griechen geworden sind, werden damals wie später in den Hauptstädten aufgespeichert und von den Assyrern als gute Beute mitgeführt worden sein. Mehr als 600 eiserne Geräte und Waffen --- wiederum nur Lanzen und Pfeilspitzen, keine Schwerter --- traten bei unseren Ausgrabungen auf Toprakkaleh zutage. Daneben werden --- ganz wie später --- der Palast des Herrschers und der Tempel des Gottes Chaldis schön ausgeführte Bronzearbeiten geliefert haben, wie denn bronzene Weiheschilde zum Bestande eines solchen Tempels gehörten (Abb. S. 34 oben). Von einem Herrscher-oder Götterthron aus Toprakkaleh haben sich zahlreiche Bestandteile erhalten, so der geflügelte Stier, der eine der Stangen des Baldachins trug. Der Kranz aus umgeklappten Blättern als Ornament (Abb. S. 34 unten) ist dem Throne mit einem herrlichen, ebendort von uns geborgenen, jetzt im Hamburger Museum für Kunst und Gewerbe befindlichen Kandelaber gemeinsam, auf dessen in Bocksklauen auslaufenden Beinen kleine Keruben assyrischer Bildung ruhten. ---
 
-Mehr als 600 eiserne Geräte und Waffen --- wiederum
+[Transport eines urartäischen Tonkruges durch die Assyrer.]()
 
-nur Lanzen und Pfeilspitzen, keine Schwerter --- traten
-bei unseren Ausgrabungen auf Toprakkaleh zutage.
-Daneben werden --- ganz wie später --- der Palast
-des Herrschers und der Tempel des Gottes Chaldis
-schön ausgeführte Bronzearbeiten geliefert haben,
-wie denn bronzene Weiheschilde zum Bestande eines
+[Urartäischer Tempel mit bronzenen Weiheschilden, von Assyrern erstürmt.]()
 
-Transport eines urartäischen Tonkruges durch die Assyrer.
-solchen Tempels gehörten (Abb. S.34 oben). Von einem
-Herrscher-oder Götterthron aus Toprakkaleh haben sich
-zahlreiche Bestandteile erhalten, so der geflügelte Stier,
-der eine der Stangen des Baldachins trug. Der Kranz aus
-umgeklappten Blättern als Ornament (Abb. S. 34 unten)
-ist dem Throne mit einem herrlichen, ebendort von uns
-geborgenen, jetzt im Hamburger Museum für Kunst
+[Wuchtiger bronzener Thronfuß (ca. 2/5), ausgegraben auf Toprakkaleh bei Van.]()
 
-und Gewerbe befindlichen Kandelaber gemeinsam,
-auf dessen in Bocksklauen auslaufenden Beinen
-kleine Keruben assyrischer Bildung ruhten. ---
-Trotz mancher Erfolge war doch all dieser Kraft- _
-. aufwand Salmanassars II. vergeblich. Die Macht _
+Trotz mancher Erfolge war doch all dieser Kraftaufwand Salmanassars 3. vergeblich. Die Macht der Urartäer blieb im Wachsen, und Salmanassars Angriffe hatten nur den Erfolg, daß ihr Reich in der heutigen Stadt Van am gleichnamigen See ihren geeigneten Mittelpunkt fand. Schon Sardur, der Nachfolger von Salmanassars urartäischem Gegner Aram, legte am Fuße der Felsenburg von Van ein Kastell an, das Angriffen von Westen, über den See her, zu trotzen bestimmt war, und dessen Vorgelände durch Quellen, die unter seinem Gemäuer hervortreten, unter Wasser gesetzt werden konnte. Sardurs Sohn und Nachfolger Ispuinis hat die Verlegung der Residenz nach Van angebahnt, sein Sohn und Mitregent Menuas, der bedeutendste der Herrscher von Ararat, sie durchgeführt. Mit ihnen hatte zunächst Samsi-Adad, der Gemahl der Semiramis (Abb. S. 36), später ihr Sohn Adadnirari zu kämpfen.
 
-König Sardurs Kastell am Fuße der Felsenburg von Van.
-der Urartäer blieb im Wachsen, und Salmanassars
-Angriffe hatten nur den Erfolg, daß ihr Reich in der
-heutigen Stadt Van am gleichnamigen See ihren ge-
-eigneten Mittelpunkt fand. Schon Sardur, der Nachfolger
-von Salmanassars urartäischem Gegner Aram, legte
-am Fuße der Felsenburg von Van ein Kastell an,
-das Angriffen von Westen, über den See her, zu
+[König Sardurs Kastell am Fuße der Felsenburg von Van.]()
 
-König Samsi-Adad, der Gemahl der Semiramis.
-unter Wasser gesetzt werden konnte. Sardurs Sohn
-und Nachfolger Ispuinis hat die Verlegung der Re-
-sidenz nach Van angebahnt, sein Sohn und Mit-
-regent Menuas, der bedeutendste der Herrscher
+[König Samsi-Adad, der Gemahl der Semiramis.]()
 
-von Ararat, sie durchgeführt. Mit ihnen hatte zu-
-nächst Samsi-Adad, der Gemahl der Semiramis
-(Abb. S. 36), später ihr Sohn Adadnirari zu kämpfen.
 Van, die Semiramisstadt, wie sie noch heute
 bei den Armeniern heißt, liegt, von wohlbewässerten
 
-Der höchste, westlichste Teil des Vanfelsens, der „Semiramis-Burg“, mit
-den türkischen Befestigungen.
-(Zeichnung von F. Frohse).
-Gärten umgeben, in einer fruchtbaren Ebene. Aus
-ihr erhebt sich nahe dem Ufer des Sees und für
-den, der sich der Stadt von Osten nähert, weithin
-sichtbar, ein isolierter Kalksteinrücken, der heute
-die türkische Zitadelle der Gouvernements-Haupt-
-stadt trägt.
-Auf diesem Felsrücken haben die Herrscher von
-Urartu zu Schammuramats Zeiten residiert. Ihre
+[Der höchste, westlichste Teil des Vanfelsens, der "Semiramis-Burg," mit den türkischen Befestigungen. (Zeichnung von F. Frohse).]()
 
-merkwürdigen Anlagen im lebendigen Felsen gelten
-heute als Schöpfungen der Semiramis.
+Gärten umgeben, in einer fruchtbaren Ebene. Aus ihr erhebt sich nahe dem Ufer des Sees und für den, der sich der Stadt von Osten nähert, weithin sichtbar, ein isolierter Kalksteinrücken, der heute die türkische Zitadelle der Gouvernements-Hauptstadt trägt.
 
-Der Vansee enthält salziges, borhaltiges Wasser.
-„An der Ostseite des Salzsees“, so berichtet die ar-
-menische Tradition, „habe Semiramis eine Stadt ge-
-gründet. Der Burgfelsen sei so hart, daß niemand
+Auf diesem Felsrücken haben die Herrscher von Urartu zu Schammuramats Zeiten residiert. Ihre merkwürdigen Anlagen im lebendigen Felsen gelten heute als Schöpfungen der Semiramis.
 
-mit Eisen darauf eine Furche zu ziehen vermöge.
- --- Dort.errichtete Semiramis Kapellen, Gemächer, Schatz-
-kammern und ausgedehnte Höhlen. Niemand weiß,
-wie die Ausführung so wunderbarer Werke möglich
-gewesen ist.“
+Der Vansee enthält salziges, borhaltiges Wasser. "An der Ostseite des Salzsees," so berichtet die armenische Tradition, "habe Semiramis eine Stadt gegründet. Der Burgfelsen sei so hart, daß niemand mit Eisen darauf eine Furche zu ziehen vermöge. Dort errichtete Semiramis Kapellen, Gemächer, Schatzkammern und ausgedehnte Höhlen. Niemand weiß, wie die Ausführung so wunderbarer Werke möglich gewesen ist."
 
-Die Kammern mit den so geschilderten In-
-schriften, die außen an den geglätteten Felsen-
-wänden angebracht sind, hat Schulz wiederentdeckt;
-die bedeutendsten rühren her von Argistis I., Menuas’
-Sohn, gegen den vielleicht schon der Sohn, sicher
-der Enkel der Semiramis, und zwar nicht weniger
-als sechsmal, zu Felde gezogen ist (Abb. S. 39).
+Die Kammern mit den so geschilderten Inschriften, die außen an den geglätteten Felsenwänden angebracht sind, hat Schulz wiederentdeckt; die bedeutendsten rühren her von Argistis 1., Menuas' Sohn, gegen den vielleicht schon der Sohn, sicher der Enkel der Semiramis, und zwar nicht weniger als sechsmal, zu Felde gezogen ist (Abb. S. 39). Erstaunlicher noch ist eine andere Anlage auf dem Zitadellenberge von Van, wo eine breite, aus dem lebendigen Felsen gehauene Treppe hinabführt zum Eingang in einen riesigen, künstlich zu beleuchtenden Felsensaal, der mit einer Anzahl sorgfältig gearbeiteter Nebengemächer als Sommerwohnung eines Chalderkönigs diente (Abb. S. 40).
 
-Erstaunlicher noch ist eine andere Anlage auf dem
-Zitadellenberge von Van, wo eine breite, aus dem
-lebendigen Felsen gehauene Treppe hinabführt zum
+Vom Fuße des Vanfelsens setzt uns das Fernobjektiv in den Stand, eine anderthalb Stunden entfernte Stätte, Dorf und Felsenburg Aralesk, wo nach der Sage Semiramis ihren Geliebten Ara mit --- sehr anschaulich geschilderten --- Küssen vom Tode zu erwecken suchte, aufzunehmen.
 
-Eingang in einen riesigen, künstlich zu beleuchtenden
-Felsensaal, der mit einer Anzahl sorgfältig gear-
-beiteter Nebengemächer als Sommerwohnung eines
-Chalderkönigs diente (Abb. S. 40).
-Vom Fuße des Vanfelsens setzt uns das Fern-
-objektiv in den Stand, eine anderthalb Stunden
-entfernte Stätte, Dorf und Felsenburg Aralesk, wo
-nach der Sage Semiramis ihren Geliebten Ara mit
- --- sehr anschaulich geschilderten --- Küssen vom
-Tode zu erwecken suchte, aufzunehmen.
+Um in der Ebene, möglichst im Schutze des Vanfelsens, eine städtische Ansiedlung zu schaffen, mußte, da das Wasser des Seees untrinkbar ist, eine Wasserleitung angelegt werden, der Semiramiskanal, der --- ein Wunder der Wasserbaukunst --- noch heute funktioniert und einem großen Teil der Ebene von Van Leben und Fruchtbarkeit spendet.
 
-Um in der Ebene, möglichst im Schutze des
-Vanfelsens, eine städtische Ansiedlung zu schaffen,
+[Die Argistis-Kammern auf der Semiramis-Burg.]()
 
-Urartäische Anlage im lebendigen Felsen auf dem Vanfelsen.
-(Zeichnung von Franz Frohse).
+[Urartäische Anlage im lebendigen Felsen auf dem Vanfelsen. (Zeichnung von Franz Frohse).]()
 
-mußte, da das Wasser des Seees untrinkbar ist, eine
-Wasserleitung angelegt werden, der Semiramiskanal,
-der --- ein Wunder der Wasserbaukunst --- noch
-heute funktioniert und einem großen Teil der Ebene
-von Van Leben und Fruchtbarkeit spendet.
-Daß er vom Könige Menuas herrührt, also wirk-
-lich aus der Zeit der Semiramis, wenn auch keines-
+Daß er vom Könige Menuas herrührt, also wirklich aus der Zeit der Semiramis, wenn auch keineswegs von ihr herrührt, besagen zahlreiche Inschriften an dem cyklopischen Gemäuer des erhöhten Bettes, in dem dieser 70 km lange Aquädukt vielfach an den Rändern tief einschneidender Schluchten entlang- und herumgeführt werden mußte. Sehr merkwürdig ist die Stelle, wo der Kanal in hölzernem, im Laufe der Jahrhunderte wohl mehrfach erneuertem Bette über den Fluß Choschab, der von Osten her in den Vansee fällt, hinübergeleitet wird (Abb. S. 42).
 
-Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs Menuas.
-(Zeichnung von Lucy du Bois-Reymond).
+[Stützmauer des "Semiramiskanals" mit Keilinschrift des Königs Menuas. (Zeichnung von Lucy du Bois-Reymond).]()
 
-wegs von ihr herrührt, besagen zahlreiche In-
-schriften an dem cyklopischen Gemäuer des erhöhten
-Bettes, in dem dieser 70 km lange Aquädukt vielfach
-an den Rändern tief einschneidender Schluchten
-entlang- und herumgeführt werden mußte. sehr
-merkwürdig ist die Stelle, wo der Kanal in hölzernem,
-im Laufe der Jahrhunderte wohl mehrfach erneuertem
-Bette über den Fluß Choschab, der von Osten her
-in den Vansee fällt, hinübergeleitet wird (Abb. S. 42).
+Im oberen Choschab-Thal erhebt sich eine malerische Feste, die heute die Ruinen eines Kurdenschlosses trägt, das 360 Zimmer enthalten und dessen Besitzer über 360 Dörfer geboten haben soll, --- einer von vielen Belegen für das Fortleben der für unsere Zeit und Kreisteilung maßgebenden altbabylonischen Sechziger-Rechnung im Volksmunde des heutigen Orients. An dieser ihrer Feste vorbei gelangten Menuas und Argistis in die fruchtbaren Gebiete westlich des Urmiasees, um die sich die Kämpfe zwischen Urartu und Assyrien zu Semiramis Zeiten hauptsächlich drehten. Die gegebene urartäische Zwingburg für diese Gegend war die "Taubenfeste" die --- ein orientalisches Vineta --- die Stätte einer in den See versunkenen Stadt bezeichnen soll, und die im Mittelalter tatsächlich die Schatzkammer des mächtigen Mongolenkaisers Hulagu-Chan gewesen ist.
 
-Im oberen Choschab-Thal erhebt sich eine male-
-rische Feste, die heute die Ruinen eines Kurden-
-schlosses trägt, das 360 Zimmer enthalten und dessen
-Besitzer über 360 Dörfer geboten haben soll, ---
-einer von vielen Belegen für das Fortleben der für
-unsere Zeit und Kreisteilung maßgebenden altbaby-
-lonischen Sechziger-Rechnung im Volksmunde des
+[Überführung des "Semiramis-Kanals" über den Choschab. (Zeichnung von Franz Frohse).]()
 
-Überführung des ‚„Semiramis-Kanals“ über den Choschab.
-(Zeichnung von Franz Frohse).
-heutigen Orients. An dieser ihrer Feste vorbei ge-
-langten Menuas und Argistis in die fruchtbaren Ge-
-biete westlich des Urmiasees, um die sich die Kämpfe
-zwischen Urartu und Assyrien zu Semiramis Zeiten.
-hauptsächlich drehten. Die gegebene urartäische
-Zwingburg für diese Gegend war die „Taubenfeste“
-die --- ein orientalisches Vineta --- die Stätte einer
-in den See versunkenen Stadt bezeichnen soll, und
-die im Mittelalter tatsächlich die Schatzkammer
+Bis sie aber dortin gelangten, waren auf vielfach schwierigen Märschen die Gebiete diesseits der persisch-türkischen Grenze zu durchkreuzen und schließlich die Grenzgebirge selbst zu übersteigen. Auf der Höhe des Passes, der von Osten in das südliche Seegebiet führt, steht noch heute, so wie sie vor 2700 Jahren von Ispuinis und Menuas errichtet wurde, eine Stele, Kel-i-schin, "der grüne Pfeiler," wie ihn die Kurden nennen; sie hat dem Berge und dem Passe selbst den Namen gegeben. Von der älteren und jüngeren Sage umsponnen --- die Zuweisung an die Semiramis fehlt auch hier nicht ---, gibt dieser Pfeiler mit seiner zweisprachigen urartäisch-assyrischen Inschrift noch heute Kunde aus den Zeiten der Semiramis. Eine unheimliche Stätte, im Winter durch gewaltige, plötzlich entstehende Schneewehen gefährdet, im Sommer berüchtigt durch die Überfälle der in diesen Grenzgebieten besonders zügellosen, räuberischen Kurden, hat die Stele kaum einen Besucher gesehen, der nicht bei einem auch nur flüchtigen Aufenthalte hier mit Naturgewalten oder den Bewohnern der Nachbarschaft ein ernsteres Abenteuer zu bestehen gehabt hätte. Ich darf bei den eigenen Erlebnissen und Ergebnissen unserer Expedition hier nicht verweilen, sondern muß auf deren Schilderung im achten Kapitel meines Reisewerkes verweisen.
 
-des mächtigen Mongolenkaisers Hulagu-Chan ge-
-wesen ist.
+[Guertschin-kalah, die "Taubenfeste" im Urmia-See. (Zeichnung von Lucy du Bois-Reymond).]()
 
-Bis sie aber dorthin gelangten, waren auf viel-
-fach schwierigen Märschen die Gebiete diesseits der
-persisch-türkischen Grenze zu durchkreuzen und
-schließlich die Grenzgebirge selbst zu übersteigen.
-Auf der Höhe des Passes, der von Osten in das
-
-Guertschin-kalah, die ‚„Taubenfeste‘“ im Urmia-See.
-(Zeichnung von Lucy du Bois-Reymond).
-
-südliche Seegebiet führt, steht noch heute, so wie
-sie vor 2700 Jahren von Ispuinis und Menuas er-
-richtet wurde, eine Stele, Kel-i-schin, „der grüne
-Pfeiler“, wie ihn die Kurden nennen; sie hat dem
-Berge und dem Passe selbst den Namen gegeben.
-
-Von der älteren und jüngeren Sage umsponnen ---
-die Zuweisung an die Semiramis fehlt auch hier
-
-nicht ---, gibt dieser Pfeiler mit seiner zweisprachigen
-urartäisch-assyrischen Inschrift noch heute Kunde
-aus den Zeiten der Semiramis. Eine unheimliche _
-Stätte, im Winter durch gewaltige, plötzlich ent-
-stehende Schneewehen gefährdet, im Sommer be-
-
-_ rüchtigt durch die Überfälle der in diesen Grenz-
-gebieten besonders zügellosen, räuberischen Kurden,
-hat die Stele kaum einen Besucher gesehen, der
-nicht bei einem auch nur flüchtigen Aufenthalte hier
-mit Naturgewalten oder den Bewohnern der Nachbar-
-schaft ein ernsteres Abenteuer zu bestehen gehabt
-
-hätte. Ich darf bei den eigenen Erlebnissen und
-Ergebnissen unserer Expedition hier nicht verweilen,
-sondern muß auf deren Schilderung im achten Ka-
-pitel meines Reisewerkes verweisen.
 Mit Hilfe der persischen Kurden aus dem Dorfe
 Haek, bei denen wir zu Gaste waren, gelang es uns
 während eines zweimaligen Besuches, die bisher nur
