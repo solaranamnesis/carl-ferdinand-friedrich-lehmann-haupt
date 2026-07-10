@@ -100,93 +100,35 @@ Der West-Tigris ist von Dijarbekir ab schiffbar. Von Till aus sah ich zwei mit S
 
 Ihre Herstellung ist einfach genug. Aufgeblasene Hammelhäute (sog. Burdjuks) werden unter einem Gerüst, das bei kleineren Keleks aus Weidenruten oder sonstigem biegsamen Material besteht, angebracht; darüber wird eine Schicht von Brettern und auf diese Stroh, Schilf oder Moos gelegt, und das Fahrzeug ist zur Aufnahme von Personen oder Lasten bereit. Die Größe wie auch die Festigkeit des Gerüstes schwankt je nach der Zahl der Schläuche; es können für größere Fahrten und Warentransporte ihrer bis 300 und mehr zusammengefügt werden. Das Kelek, gewiß in mancher Hinsicht ein recht unbequemes Gefährt, hat doch auch seine Vorteile: es bewährt sich namentlich auf Gebirgsströmen von ungleichmäßiger Tiefe und wechselnder Stromgeschwindigkeit. Hier trägt es seine Insassen, wie es vor allem unser Moltke erprobt hat, glücklich durch die Stromschnellen hindurch, wenn es auch, vom Wirbel erfaßt und beständig herumgedreht, ihnen ein gründliches und bei der herrschenden Hitze meist nicht unwillkommenes Bad verschafft.
 
-Mit dem Kelek aber ragt wiederum die älteste
-Zeit lebendig in die Gegenwart hinein. Genau so
-wie sie heute den Tigris hinabfahren, waren die Fahr- Ä
-zeuge aus Hammelhäuten schon auf den Reliefplatten
-der assyrischen Paläste dargestellt, und die Fische,
-‘die das assyrische Schlauchfloß umspielen, geben in
+Mit dem Kelek aber ragt wiederum die älteste Zeit lebendig in die Gegenwart hinein. Genau so wie sie heute den Tigris hinabfahren, waren die Fahrzeuge aus Hammelhäuten schon auf den Reliefplatten der assyrischen Paläste dargestellt, und die Fische, die das assyrische Schlauchfloß umspielen, geben in größter Naturtreue eine für den Tigris noch heute charakteristische, schmackhafte Karpfenart wider, die ich in Till zu kosten bekam.
 
-Assyrisches Kelek.
-größter Naturtreue eine für den Tigris noch heute
-charakteristische, schmackhafte Karpfenart wider, die
-ich in Till zu kosten bekam.
+[Assyrisches Kelek.]()
 
-Das Durchschwimmen der Ströme mittels eines
-einzelnen Burdjuks, wie es die assyrischen Dar-
-stellungen mehrfach zeigen, ist gleichfalls heute noch
-üblich. Ich habe es an historischer Stätte zwischen
-Monsul und Niniveh beobachten können (Abb. S. 21). ---
+Das Durchschwimmen der Ströme mittels eines einzelnen Burdjuks, wie es die assyrischen Darstellungen mehrfach zeigen, ist gleichfalls heute noch üblich. Ich habe es an historischer Stätte zwischen Monsul und Niniveh beobachten können (Abb. S. 21). ---
 
-Zwei bis drei Tagereisen in nordwestlicher Rich-
-tung führen Salmanassar II. und uns, die wir ihm
+Zwei bis drei Tagereisen in nordwestlicher Richtung führen Salmanassar 3. und uns, die wir ihm folgen, zu einer Stätte, wo ein Teil der Wasser, die die Mauern von Niniveh, Kalach und Assur bespülten, aus felsigem Dunkel zutage treten.
 
-folgen, zu einer Stätte, wo ein Teil der Wasser, die
-die Mauern von Niniveh, Kalach und Assur bespülten,
-aus felsigem Dunkel zutage treten.
+Unter einer natürlichen Felsenbrücke hindurch gelangen wir zu einem mächtigen Felsentor, aus dem ein Zufluß des Westtigris hervorströmt, und finden an dessen Wänden ein kleines Bildnis und eine Inschrift Tiglatpilesers 1. (vor 1000 v. Chr.), die er bei seinem dritten Feldzuge in die Naíri-Länder hier angebracht hat, und stellen ferner --- vielfach abweichend von den Vorstellungen, die man sich auf Grund der Berichte und der Abklatsche früherer, der Keilschrift nicht kundiger Besucher der Stätte gebildet hatte, --- zwei große Inschriften unsres Salmanassar fest.
 
-Unter einer natürlichen Felsenbrücke hindurch
-gelangen wir zu einem mächtigen Felsentor, aus dem
-ein Zufluß des Westtigris hervorströmt, und finden an
-dessen Wänden ein kleines Bildnis und eine Inschrift
-Tiglatpilesers I. (vor 1000 v. Chr.), die er bei seinem
-dritten Feldzuge in die Nairi-Länder hier angebracht
+[Durchschwimmen eines Flusses auf einem Burdjuk. (Zeichnung von E. Hanetzog).]()
 
-Durchschwimmen eines Flusses auf einem Burdjuk.
-(Zeichnung von E. Hanetzog).
+Ihre Lesung wird erschwert durch den höchst unregelmäßigen Verlauf ihrer Zeilen auf der Felsfläche. Daß dies eine unerfreuliche Eigentümlichkeit des Hofsteinmetzen Salmanassars 3. war, zeigen Inschriften desselben Königs, die in Assur bei den Ausgrabungen der deutschen Orient-Gesellschaft gefunden worden sind.
 
-hat, und stellen ferner --- vielfach abweichend von
-den Vorstellungen, die man sich auf Grund der Be-
-richte und der Abklatsche früherer, der Keilschrift
-nicht kundiger Besucher der Stätte gebildet hatte, ---
-zwei große Inschriften unsres Salmanassar fest.
+[Felsenbrücke unterhalb des Tigristunnel-Ausgangs. (Zeichnung von Franz Frohse).]()
 
-Ihre Lesung wird erschwert durch den höchst
-unregelmäßigen Verlauf ihrer Zeilen auf der Felsfläche.
-Daß dies eine unerfreuliche Eigentümlichkeit des Hof-
-steinmetzen Salmanassars III. war, zeigen Inschriften
-desselben Königs, die in Assur bei den Ausgrabungen
-der deutschen Orient-Gesellschaft gefunden worden
-sind.
+Aus den historischen, epigraphischen und geographischen Ergebnissen, die in unerwarteter Fülle hier des Forschers harrten, seien nur einige wenige hervorgehoben; im übrigen muß hierfür wie für manches andre auf die Schilderung und die Abbildungen im ersten Bande meines vor kurzem erschienenen Reisewerks "Armenien einst und jetzt" verwiesen werden.
 
-Felsenbrücke unterhalb des Tigristunnel-Ausgangs.
-(Zeichnung von Franz Frohse).
-hier desForschers harrten, seien nur einige wenige her-
-vorgehoben; im übrigen muß hierfür wie für manches
+[Das untere Ende des Tigristunnels. (Zeichnung von Franz Frohse).]()
 
-andre auf die Schilderung und die Abbildungen im
-ersten Bande meines vor kurzem erschienenen Reise-
-werks „Armenien einst und jetzt“ verwiesen werden.
+Im Gegensatz zu Tiglatpileser 1., seinem einzigen erweislichen Vorgänger an dieser Stätte, behauptet Salmanassar 3. in jenen --- aus seinem 15. Regierungsjahre stammenden --- Inschriften der Tigrishöhle, sie seien an der Quelle des Tigris angebracht. Dabei ist ihm aber nachweislich nicht wohl zumute gewesen. Denn als eigentliche Quelle des Westtigris betrachtet Salmanassar, genau wie wir, den bei Argana viel weiter im Westen entspringenden Tigrisarm. "Den Ort selbst, wo die Wasser hervorquellen," --- so drückt er sich in seinen Annalen aus --- hatte Salmanassar in einem früheren Regierungsjahre aufgesucht, dort auch die der Quelle und ihrer Gottheit gebührenden Opfer dargebracht und sein Königsbild aufgestellt.
 
-Im Gegensatz zu Tiglatpileser I, seinem einzigen
-erweislichen Vorgänger an dieser Stätte, behauptet
+[Felsrelief und Inschrift Tiglatpilesers 1. am Ausgange des Tigristunnels.]()
 
-Felsrelief und Inschrift Tiglatpilesers I. am Ausgange des Tigristunnels.
-Salmanassar III. in jenen --- aus seinem 15. Regierungs-
-jahre stammenden --- Inschriften der Tigrishöhle, sie
-seien an der Quelle des Tigris angebracht. Dabei
-ist ihm aber nachweislich nicht wohl zumute gewesen.
-Denn als eigentliche Quelle des Westtigris betrachtet
-Salmanassar, genau wie wir, den bei Argana viel
+[An der Tigrisquelle (Palasttore von Balawat).]()
 
-An der Tigrisquelle (Palasttore von Balawat).
-weiter im Westen entspringenden Tigrisarm. „Den
-Ort selbst, wo die Wasser hervorquellen“, --- so drückt
-er sich in seinen Annalen aus --- hatte Salmanassar
-in einem früheren Regierungsjahre aufgesucht, dort
-auch die der Quelle und ihrer Gottheit gebührenden
-Opfer dargebracht und sein Königsbild aufgestellt.
+Dieser Vorgang tritt uns auch im Bilde entgegen auf den Kupferbeschlägen, die die Tore des Palastes schmücken, den Salmanassar sich in der heute Balawat genannten, assyrischen Stadt errichtete.
 
-Dieser Vorgang tritt uns auch im Bilde entgegen
-auf den Kupferbeschlägen, die die Tore des Palastes
-schmücken, den Salmanassar sich in der heute Balawat
-genannten, assyrischen Stadt errichtete.
-
-Auf den ersten Blick sieht man, daß es sich um
-eine von der bisher geschilderten gänzlich verschiedene
-Örtlichkeit, um eine aus dem Felsen, in einzelnen
-kleinen Quellhöhlungen, im übrigen aber frei und un-
-mittelbar hervortretende Quelle handelt. |
+Auf den ersten Blick sieht man, daß es sich um eine von der bisher geschilderten gänzlich verschiedene Örtlichkeit, um eine aus dem Felsen, in einzelnen kleinen Quellhöhlungen, im übrigen aber frei und unmittelbar hervortretende Quelle handelt.
 
 Für diese Verschiedenheit der Örtlichkeiten er-
 geben sich nun --- und zwar wiederum durch In-
