@@ -332,139 +332,49 @@ Seien der deutschen Orient-Gesellschaft, die in Ägypten die Pyramidenbauer der 
 
 (Das Verzeichnis der Abbildungen und ihrer Quellen s. S. 74 ff.)
 
-S. 2 und S. 9: Die Rolle die die Taube in der Semiramis-Sage
-spielt, beruht wohl teils darauf, daß die Taube der Istar heilig ist (s.
-
-dazu H. Zimmern, Die Keilinschriften und das alte Testament, 3. Aufl.,
-S. 429, 431 Anm. 5, 440) teils auf einem leichten Anklang des Namens
-der Semiramis an ein semitisches Wort für „Taube“ (bab.-assyr. summatu)
+S. 2 und S. 9: Die Rolle die die Taube in der Semiramis-Sage spielt, beruht wohl teils darauf, daß die Taube der Istar heilig ist (s. dazu H. Zimmern, Die Keilinschriften und das alte Testament, 3. Aufl., S. 429, 431 Anm. 5, 440) teils auf einem leichten Anklang des Namens der Semiramis an ein semitisches Wort für "Taube" (bab.-assyr. summatu)
 
 S. 2 unten siehe zu S. 68.
 
-" S.10f. Der Ninos-Roman herausgegeben und behandelt von
-| U. Wilcken, Hermes 28 (1893), S. 161 ft.
+S. 10 f. Der Ninos-Roman herausgegeben und behandelt von U. Wilcken, Hermes 28 (1893), S. 161 ff.
 
-S. 11: Steintransport aus Armenien durch Semiramis Diodor
-I, 11,4. --- Ninos gegen Armenien: Diodor II, 1, 8 u. 9.
+S. 11: Steintransport aus Armenien durch Semiramis Diodor 2, 11, 4. --- Ninos gegen Armenien: Diodor 2, 1, 8 u. 9.
 
-S. 7f. (vgl. S. 62f.): Zeile 6 der Semiramis-Inschrift von
-Assur beginnt nach den von dorther eingetroffenen Berichten mit den
-Zeichen KID. LAT. --- Die Annahme liegt sehr nahe, daß für KID das
-ihm sehr ähnliche Zeichen KAL dasteht und dann zu lesen ist kal-lat.
-Damit würde Semiramis (in assyrischer Aussprache: Schammuramat,
-in babylonischer: Sammuramat) bezeichnet als die Schwiegertochter Sal-
-manassars III. (Kallätu bezeichnet zwar ursprünglich „Braut, junge Frau“.
-Aber auch im Hebräischen findet sich für ==> kalläh der gleiche
-Bedeutungsübergang, der auch bei dem griechischen Worte »öugn, be-
-sonders im Neuen Testament, nachweisbar ist). Freilich griffe dann
-die Genealogie die im Übrigen in dieser Inschrift von oben nach unten
-fortschreitet, zurück. Erwiese sich dagegen bei Prüfung des Originals,
-daß wirklich KID. LAT dasteht, so müßte, wie im Text bemerkt, Semi-
-ramis dadurch als Großmutter oder Vormündin Salmanassars IV. charak-
-terisiert sein.
+S. 7 f. (vgl. S. 62 f.): Zeile 6 der Semiramis-Inschrift von Assur beginnt nach den von dorther eingetroffenen Berichten mit den Zeichen KID. LAT. --- Die Annahme liegt sehr nahe, daß für KID das ihm sehr ähnliche Zeichen KAL dasteht und dann zu lesen ist kal-lat. Damit würde Semiramis (in assyrischer Aussprache: Schammuramat, in babylonischer: Sammuramat) bezeichnet als die Schwiegertochter Salmanassars 3. (Kallâtu bezeichnet zwar ursprünglich "Braut, junge Frau." Aber auch im Hebräischen findet sich für כלּה kallâh der gleiche Bedeutungsübergang, der auch bei dem griechischen Worte νύμφη, besonders im Neuen Testament, nachweisbar ist). Freilich griffe dann die Genealogie die im Übrigen in dieser Inschrift von oben nach unten fortschreitet, zurück. Erwiese sich dagegen bei Prüfung des Originals, daß wirklich KID. LAT dasteht, so müßte, wie im Text bemerkt, Semiramis dadurch als Großmutter oder Vormündin Salmanassars 4. charakterisiert sein.
 
-Ss. 9. Der Sohn (811---783) der Semiramis als Adad-
-nirari IV (nicht, wie bisher als „III*) zu bezeichnen s. Mitteilungen der
-Deutschen Orient-Gesellschaft No. 2 35 u. S. 32 S. 19 und Klio VI (1906),
-S. 534f. Ihr Schwiegervater (860---26) als Salmanassar III (nicht „II“)
-nach F. Delitzsch, Mitt. d. D. Or.-G. No. 42, S. 35 Anm.
+S. 9 f. Der Sohn (811-783) der Semiramis als Adadnirari 4 (nicht, wie bisher als "3") zu bezeichnen s. Mitteilungen der Deutschen Orient-Gesellschaft No. 2 35 u. S. 32 S. 19 und Klio 6. (1906), S. 534 f. Ihr Schwiegervater (860-26) als Salmanassar 3 (nicht "2") nach F. Delitzsch, Mitt. d. D. Or.-G. No. 42, S. 35 Anm.
 
-S. 24: Das Felsrelief Tiglatpilesers I und die Inschrift er-
-scheinen etwas verzerrt, da der Verfasser bei der Aufnahme an Ort
+S. 24: Das Felsrelief Tiglatpilesers 1 und die Inschrift erscheinen etwas verzerrt, da der Verfasser bei der Aufnahme an Ort und Stelle auf einer Sandbank im Flußbett schräg und tief unter der Skulptur stehen mußte.
 
-und Stelle auf einer Sandbank im Flußbett schräg und tief unter der
-Skulptur stehen mußte.
+S. 33: Für die Ergebnisse der mit Unterstützung der Rudolf-Virchow-Stiftung vorgenommenen Ausgrabungen auf der Chalderburg Toprakkaleh bei Van verweise ich bis zum Erscheinen des 2. Bandes meines Reisewerkes (S. 24; 74) auf meine Abhandlung "Materialien zur Kultur und zur Herkunft der Chalder vornehmlich aus den Ausgrabungen auf Toprakkaläh bei Van," die als zweiter Abschnitt meinen "Materialien zur älteren Geschichte Armeniens und Mesopotamiens." (Abhandlungen der Königl. Gesellschaft der Wissenschaften zu Göttingen. Philosophisch-Historische Klasse. Bd. 9, Nr. 3. Weidmannsche Buchhandlung 1907) einverleibt ist.
 
-S, 33: Für die Ergebnisse der mit Unterstützung der Rudoli-
-Virchow -Stiftung vorgenommenen Ausgrabungen auf der Chalder-
-burg Toprakkaleh bei Van verweise ich bis zum Erscheinen
-des II. Bandes meines Reisewerkes (S. 24; 74) auf meine Abhandlung „Ma-
-terialien zur Kultur und zur Herkunft der Chalder vornehmlich aus den
-Ausgrabungen auf Toprakkaläh bei Van“, die als zweiter Abschnitt
-meinen „Materialien zur älteren Geschichte Armeniens und Mesopota-
-miens“. (Abhandlungen der Königl. Gesellschaft der Wissenschaften zu
-Göttingen. Philosophisch-Historische Klasse. Bd. IX, Nr. 3. Weid-
-mannsche Buchhandlung 1907) einverleibt ist.
+S. 38, Abs. 2: Für die armenische Tradition über Semiramis findet sich der wichtigste unter vielen Belegen im 16. Kapitel des ersten Buches der armenischen Geschichte, die den Namen des im fünften nachchristlichen Jahrhundert lebenden Moses von Chorene trägt, aber wahrscheinlich einige Jahrhunderte später verfaßt ist.
 
-S. 38, Abs. 2: Für die armenische Tradition über Semi-
-ramis findet sich der wichtigste unter vielen Belegen im 16. Kapitel
-des ersten Buches der armenischen Geschichte, die den Namen des im
-fünften nachchristlichen Jahrhundert lebenden Moses von Chorene trägt,
-aber wahrscheinlich einige Jahrhunderte später verfaßt ist.
+S. 41: Die Keilinschriften am Aquädukt des Menuas sind 14-, 9-, 4- und 3 zeilig. An der dargestelten Stelle befindet sich eine 9 zeilige Inschrift, insofern bedarf die Abbildung einer Berichtigung.
 
-S, 41: Die Keilinschriften am Aquädukt des Menuas sind
-14-, 9-, 4- und 3zeilig.. An der dargestelten Stelle befindet sich eine
-9zeilige Inschrift, insofern bedarf die Abbildung einer Berichtigung.
+S. 45. Kel-i-giaur, die "graue Stele," steht diesseits des Kelischin-Passes auf türkischem Gebiet, beim Dorfe Topzauä, 2-3 Stunden vom Kel-i-schin entfernt. Sie stammt aus der Zeit der späteren urartäisch-assyrischen Kämpfe und rührt her von Rusas 1., dem mächtigen Gegner Sargons 2. (722-705) von Assyrien. S. Ztschr. der deutschen morgenländischen Gesellschaft 58 (1904), S. 831 ff.
 
-S.45.Kel-i-giaur, die ,graueStele“,steht diesseits des Kelischin-
-Passes auf türkischem Gebiet, beim Dorfe Topzauä, 2---3 Stunden vom
-Kel-i-schin entfernt. Sie stammt aus der Zeit der späteren urartäisch”
-assyrischen Kämpfe und rührt her von Rusas I., dem mächtigen Gegner
-Sargons II. (722---705) von Assyrien. S. Ztschr. der deutschen morgen-
-ländischen Gesellschaft LVIII (1904), S. 831f.
+S. 49: Herodot über die Rundschiffe auf dem Euphrat: 1. 194.
 
-S.49: Herodot über die Rundschiffe auf dem Euphrat:
-1 194.
+S. 51 ff.: Meine Ansicht über die Entstehung der Semiramis-Sage und ihr Verhältnis zur historischen Semiramis habe ich 1894 zum ersten Male ausgesprochen (Berliner Philologische Wochenschrift Sp. 239) und alsdann ausführlicher entwickelt in dem Aufsatze "Die historische Semiramis und Herodot." (Klio, Beiträge zur alten Geschichte-Bd. 1. [1901], S. 256 ff.). Nur nahm ich damals an, daß Semiramis die Gemahlin Adadniraris, nicht, wie wir jetzt wissen, seine Mutter gewesen sei. Dort wurde auch gezeigt, daß Herodot (1. 184) seine Kenntnis von der geschichtlichen Semiramis babylonischen Nebopriestern verdanken wird, woraus sich für die Kritik des Herodot Wichtiges ergibt. Wenn dagegen Herodot (3. 155) in der auf mündlicher Erkundung beruhenden Mär von der zweimaligen Einnahme Babylons (1. 188-191; 3., 150-160) ein Tor von Babylon nach der Semiramis benennt, so liegt hier ein Element der im persischen Volksmunde verbreiteten Semiramis-Sage vor, die wahrscheinlich schon Herodots Oheim Panyasis dichterisch verwertet hat. Vgl. ferner meinen Artikel "Semiramis" in Roschers Lexikon der griechischen und römischen Mythologie.
 
-S. 51 ff: Meine Ansicht über die Entstehung der Semiramis-
-Sage und ihr Verhältnis zur historischen Semiramis habe ich 1894
-zum ersten Male ausgesprochen (Berliner Philologische Wochenschrift
-Sp. 239) und alsdann ausführlicher entwickelt in dem Aufsatze „Die
-historische Semiramis und Herodot“. (Klio, Beiträge zur alten Geschichte- .
-Bd. I [1901], S. 256 ff). Nur nahm ich damals an, daß Semiramis
-die Gemahlin Adadniraris, nicht, wie wir jetzt wissen, seine Mutter ge-
-wesen sei. Dort wurde auch gezeigt, daß Herodot (I 184) seine Kennt-
-nis von der geschichtlichen Semiramis babylonischen Nebopriestern ver-
-danken wird, woraus sich für die Kritik des Herodot Wichtiges ergibt.
-Wenn dagegen Herodot (II 155) in der auf mündlicher Erkundung be-
+S. 51, Abs. 3 a. A.: Eine Ahnung von dem historischen Sachverhalt klingt auch bei Ktesias noch nach, wenn er (Diod. 2., 1, 4) von ruhmlosen "einheimischen" (aber nicht "assyrischen") Königen weiß, die vor Ninus gelebt hätten.
 
-ruhenden Mär von der zweimaligen Einnahme Babylons (I 188---191;
-nII, 150---160) ein Tor von Babylon nach der Semiramis benennt, so
-liegt hier ein Element der im persischen Volksmunde verbreiteten
-Semiramis-Sage vor, die wahrscheinlich schon Herodots Oheim Panyasis
-dichterisch verwertet hat. Vgl. ferner meinen Artikel „Semiramis“ in
-Roschers Lexikon der griechischen und römischen Mythologie.
+S. 53 ff.: Die Stellen aus dem Gilgamisch-Epos zitiert nach P. Jensens Bearbeitung und Übersetzung in Schraders Keilinschriftlicher Bibliothek. Bd. 6. Erster Teil. S. 168 ff.
 
-S. 51, Abs. 3 a. A.: Eine Ahnung von dem historischen Sach-
-verhalt klingt auch bei Ktesias noch nach, wenn er (Diod. II, 1,4) von
-ruhmlosen „einheimischen“ (aber nicht „assyrischen“) Königen weiß, die
+S. 54: Wie Istar ihre Liebhaber mißhandelt, so tötet Semiramis nach Ktesias bei Diodor jeden, dem sie ihre Gunst einmal geschenkt hat: es liegt hier das weitverbreitete mythische Motiv des "gefährlichen Mädchens" (Weibes) vor.
 
-vor Ninus gelebt hätten.
+S. 55, Abs. 2: Über die Königs-Berufungssage und Verwandtes siehe u. a. meinen Aufsatz "Belitanâs und Beletaras" in der Festschrift für Theodor Nöldeke (1906), S. 1004 ff. und was dort citiert ist.
 
-S.53ff: Die Stellen aus dem Gilgamisch-Epos zitiert nach
-P. Jensens Bearbeitung und Übersetzung in Schraders Keilinschriftlicher
-Bibliothek. Bd. VI. Erster Teil. S. 168 ff. '
+S. 55, Abs. 4: Strabo 16. 1, 2.
 
-S. 54: Wie Istar ihre Liebhaber mißhandelt, so tötet Semiramis nach
+S. 56 unten: Über die Henkelfiguren mit Darstellungen der geflügelten Sonnenscheibe siehe Näheres in meinen "Materialien," S. 86 ff.
 
-Ktesias bei Diodor jeden, dem sie ihre Gunst einmal geschenkt hat:
+S. 57 f.: Daß auf dem Goldmedaillon von Toprakkaleh eine, Königin im Gespräch mit ihrer Dienerin, nicht, wie ich annahm, eine Anbetungsszene vor einer sitzenden weiblichen Gottheit dargestellt ist, hat L. Messerschmidt in den amtlichen Berichten aus den Königl. Kunstsammlungen (31. Jahrgang, Nr. 3, Dezember 1909, Spalte 55) gezeigt.
 
-- e8 liegt hier das weitverbreitete mythische Motiv des „gefährlichen
-Mädchens“ (Weibes) vor.
+S. 44: Überden "Kelischin einst und jetzt," siehe das Reisewerk (ob. S. 24), "Armenien einst und jetzt" Reisen und Forschungen. Erster Band. (Berlin, B. Behrs Verlag 1910), Kap. 8., S. 242-261.
 
-S. 55, Abs. 2: Über dieKönigs-Berufungssage und Verwandtes
-siehe u. a. meinen Aufsatz „Belitanäs und Beletaras“ in der Festschrift
-für Theodor Nöldeke (1906), S. 1004 ff. und was dort eitiert ist.
-
-S. 55, Abs. 4: Strabo XVI 1, 2.
-
-S. 56 unten: Über dieHenkelfiguren mit Darstellungen der ge-
-flügelten Sonnenscheibe siehe Näheres in meinen „Materialien“, S. 86 ff.
-
-S.57f.: Daß auf dem Goldmedaillon von Toprakkaleh eine,
-Königin im Gespräch mit ihrer Dienerin, nicht, wie ich annahm, eine
-Anbetungsszene vor einer sitzenden weiblichen Gottheit dargestellt ist,
-hat L. Messerschmidt in den amtlichen Berichten aus den Königl. Kunst-
-sammlungen (31. Jahrgang, Nr, 3, Dezember 1909, Spalte 55) gezeigt.
-
-S. 44: Überden „Kelischineinstundjetzt“, siehe das Reise-
-
-werk (ob. S. 24), „Armenien einst und jetzt“ Reisen und Forschungen.
-Erster Band. (Berlin, B. Behr’s Verlag 1910), Kap. VII, S. 242---261.
-
-S.59f.: Für Berossos’ Kunde von der historischen Semi-
-ramis sei auf meine Darlegungen (Klio, Bd. I 259, 277, 481; III 149;
-VII 230; X 256f.) verwiesen.
+S. 59 f.: Für Berossos' Kunde von der historischen Semiramis sei auf meine Darlegungen (Klio, Bd. 1. 259, 277, 481; 3. 149; 7. 230; 10. 256 f.) verwiesen.
 
 S. 61: Der Versuch, die Tatsachen zu verdrehen und den .
 assyrischen Hauptgott als den älteren Bäl, den Vater des baby-
