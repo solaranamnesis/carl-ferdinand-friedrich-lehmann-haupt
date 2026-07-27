@@ -376,176 +376,152 @@ S. 44: Überden "Kelischin einst und jetzt," siehe das Reisewerk (ob. S. 24), "A
 
 S. 59 f.: Für Berossos' Kunde von der historischen Semiramis sei auf meine Darlegungen (Klio, Bd. 1. 259, 277, 481; 3. 149; 7. 230; 10. 256 f.) verwiesen.
 
-S. 61: Der Versuch, die Tatsachen zu verdrehen und den .
-assyrischen Hauptgott als den älteren Bäl, den Vater des baby-
-lonischen Bäl-Marduk, hinzustellen, ist von den Assyrern auch einmal
-gemacht worden, als Sanherib Babylon zerstört und Babylonien zur assyri-
-schen Provinz gemacht hatte (s. Klio 1167£., VII 461). Da nunmehr das
-babylonische Neujahrsfest in Assyrien gefeiert werden sollte, wurde
+S. 61: Der Versuch, die Tatsachen zu verdrehen und den assyrischen Hauptgott als den älteren Bêl, den Vater des babylonischen Bêl-Marduk, hinzustellen, ist von den Assyrern auch einmal gemacht worden, als Sanherib Babylon zerstört und Babylonien zur assyrischen Provinz gemacht hatte (s. Klio 1. 167 f.; 7. 461). Da nunmehr das babylonische Neujahrsfest in Assyrien gefeiert werden sollte, wurde damals von Sanherib das bei den Ausgrabungen der Deutschen Orientgesellschaft (s. deren Mitteilungen Nr. 33 S. 4 ff. 33 ff.) in seinen Fundamenten wieder aufgedeckte Neujahrsfesthaus erbaut und an dessen Haupttore, wie inschriftlich bezeugt ist, der Mythus von der Tötung der Tiamat, des Chaostieres durch den Schöpfergott dargestellt; als Bekämpfer des Tiamat erschien dabei aber nicht, wie es der Mythus forderte, der babylonische Hauptgott Bêl-Marduk, sondern Assur. Für eine friedliche Vereinigung beider Reiche, wie sie von Semiramis angestrebt wurde, wäre ein solches Vorgehen natürlich völlig ungeeignet gewesen.
 
-damals von Sanherib das bei den Ausgrabungen der Deutschen Orient-
-gesellschaft (s. deren Mitteilungen Nr. 33 S. 4 ff. 33 ff.) in seinen Funda-
-menten wieder aufgedeckte Neujahrsfesthaus erbaut und an dessen Haupt-
-tore, wie inschriftlich bezeugt ist, der Mythus von der Tötung der
-Tiamat, des Chaostieres "durch den Schöpfergott dargestellt; als Be-
-kämpfer des Tiamat erschien dabei aber nicht, wie es der Mythus for-
-derte, der babylonische Hauptgott B&äl-Marduk, sondern Assur. Für eine
-friedliche Vereinigung beider Reiche, wie sie von Semiramis angestrebt
-wurde, wäre ein solches Vorgehen natürlich völlig ungeeignet gewesen.
+S. 62 f. Siehe oben die Anm. zu S. 7 f.
 
-S. 62f. Siehe oben die Anm. zu S. 7f.
+S. 63 f. Assyrien und Babylonien eine Satrapie Her. 3. 92; 1. 192. Über die darauf beruhende Begriffsverwirrung Klio 1. (1901), S. 270 ff.
 
-S.63f. Assyrien und Babylonien eine Satrapie Her. III 92; I 192,
-Über die darauf beruhende Begriffsverwirrung Klio I (1901), S. 270ft.
+S. 64. Die hängenden Gärten nicht von der Semiramis herrührend: Diodor (nach Ktesias) 2. 10, 1.
 
-S.64. Die hängenden Gärten nicht von der Semiramis her-
-rührend : Diodor ‚nach Ktesias) II 10, 1.
+S. 65: Als eine Darstellung assyrischer hängender Gärten wurde die hier wiedergegebene assyrische Skulptur erklärt von B. Meißner, Wiener Ztschr. f. d. Kunde des Morgenlandes 12. (1898), S. 272 ff.; 364, für eine Wasserleitung von H. Winckler Oriental. Lit.-Ztg. 2. (1897), S. 55. Vgl. meinen Bericht "Assyrien" in den Jahresberichten der Geschichtswissenschaft für 1907, 1. S. 207 Anm. 957.
 
-S. 65: Als eine Darstellung assyrischerhängender Gärten
-wurde die hier wiedergegebene assyrische Skulptur erklärt von B. Meißner,
-Wiener Ztschr. f. d. Kunde des Morgenlandes XII (1898), S. 272{f:; 364,
-für eine Wasserleitung von H. Winckler Oriental. Lit.-Ztg. II (1897)
-S. 55. Vgl. meinen Bericht „Assyrien“ in den Jahresberichten der Ge-
-schichtswissenschaft für 1907. I S. 207 Anm. 957.
+S. 65: Die Hose als Erfindung der Semiramis Diodor 2. 6, 6.
 
-S. 65: Die Hose als Erfindung der Semiramis Diodor II 6, 6.
+S. 68 vgl. S. 2 unten): Die Angaben über die Zahl der Nebo-Statuen schwanken. Anfänglich (1851) wurden zwei beschriebene Statuen gefunden (W. K. Loftus, Travels and researches in Chaldaea and Susiana p. 271 ff.). Sir Henry Rawlinson, The cuneiform inscriptions of Western Asia 1. pl. 35 No. 2, erwähnt im Ganzen fünf lebensgroße beschriebene und zwei kolossale unbeschriebene Statuen, von den ersteren seien zwei im Britischen Museum. George Rawlinson dagegen (The five great monarchies of the East, vol. 2 p. 119 ff.) weiß von vier beschriebenen und vier inschriftlosen kolossalen Statuen zu berichten, die sein Bruder Henry gefunden habe.
 
-S. 68 ‘vgl. S. 2 unten): Die Angaben über die Zahl der Nebo*
-Statuen schwanken. Anfänglich (1851) wurden zwei beschriebene
-Statuen gefunden (W.K. Loftus, Travels and researches in Chaldaea and
-Sisiana p. 271 ff). Sir Henry Rawlinson, :The cuneiform inscriptions
+S. 69: Über das Königsgrab von Seddin siehe A. Kiekebusch in der Sonntagsbeilage, Nr. 1 der "Vossischen Zeitung" von 4. Januar 1910.
 
-of Western Asia I pl. 35 No. 2, erwähnt im Ganzen fünf lebensgroße
-beschriebene und zwei kolossale unbeschriebene Statuen, von den
-ersteren seien zwei im Britischen Museum. George Rawlinson dagegen
-(The five great monarchies of the East, vol. II p. 119 ff.) weiß von vier
-beschriebenen und vier inschriftlosen kolossalen Statuen zu berichten;
-die sein Bruder Henry gefunden habe,
+## Verzeichnis der Abbildungen und ihrer Quellen.
 
-S. 69: Über das Königsgrab von Seddin siehe A. Kiekebusch
-in der Sonntagsbeilage, Nr. 1 der „Vossischen Zeitung“ von 4. Januar 1910.
+St. = Strichätzung nach Zeichnungen von Künstlerhand, die --- sofern nichts anders bemerkt nach meiner Aufnahme während der Forschungsreise (S. 14) für mein Reisewerk "Armenien einst und jetzt" (S. 24, 72) angefertigt wurden und hier mit Genehmigung des Verlegers wiedergegeben werden. --- Kl. = Klischee (Zinkotypie). --- "Armenien" 1. (Bd. 2.): der 1910 erschienene erste (der in Vorbereitung befindliche zweite Band) des Reisewerkes. --- Mat. = C. F. Lehmann-Haupt: Materialien zur älteren Geschichte Armeniens und Mesopotamiens (s. S. 70: Anm. zu S. 33). --- Layard 1. (2.) = A. H. Layard, The monuments of Niniveh Vol. 1. (2.). --- Maspero 1. (2., 3.) = G. Maspero, Histoire ancienne des peuples de l'orient classique Vol. 1. (2., 3.). --- Balawat = Ad. Billerbeck und F. Deliztsch, Die Palasttore Salmanassars 2. (jetzt 3.) von Balawat (Beiträge zur Assyriologie 6. 1.).
 
-Verzeichnis der Abbildungen und ihrer
-Quellen.
+Abbildung auf Seite
 
-St. = Strichätzung nach Zeichnungen von Künstlerhand, die --- so-
-fern nichts anders bemerkt nach meiner Aufnahme während der For-
-schungsreise (S. 14) für mein Reisewerk „Armenien einst und jetzt“
-(S. 24, 72) angefertigt wurden und hier mit Genehmigung des Ver-
-legers wiedergegeben werden. --- Kl. = Klischee (Zinkotypie). --- „Ar-
-menien” (Bd. I) : der 1910 erschienene erste (der in Vorbereitung
-befindliche zweite Band) des Reisewerkes. --- Mat. = C. F. Lehmann-Haupt :
-Materialien zur älteren Geschichte Armeniens und Meso-
-potamiens(s. S.70: Anm. zu S. 33). --- Layard I (I) = A.H. Layard, The
-monuments of Niniveh Vol. I (II).-- Maspero I (II, III) = G. Maspero, Hi-
-stoire ancienne des peuples de l’orient classique Vol. I (II, III).
---- Balawat = Ad. Billerbeck und F. Deliztsch, Die Palasttore
-Salmanassars II (jetzt III) von Balawat (Beiträge zur Assyriologie VII).
-Abbildung auf
-Seite
+1\. Alte Tigrisbrücke bei Djezîreh. --- St. --- Armenien 1. S. 364.
 
-1 Alte Tigrisbrücke bei Djezireh. --- St. --- Armenien I S. 364.
+3\. Nebo-Statue aus Kalach-Nimrud (im Britischen Museum). --- Kl. --- Photographie Mansell.
 
-3 Nebo-Statue aus Kalach-Nimrud (im Britischen Museum). --- Kl. ---
-Photographie Mansell.
+5\. Assur: Zwei Königsstelen. --- Kl. --- Mitteilungen der Deutschen Orient-Gesellschaft Nr. 42 (Dezember 1909) S. 36.
 
-5 Assur: ZweiKönigsstelen. --- Kl. --- Mitteilungen der Deutschen
-Orient-Gesellschaft Nr. 42 (Dezember 1909) S. 36.
+6\. Die Reihe der Königsstelen aus Westen, ebenda S. 39.
 
-6 Die Reihe der Königsstelen aus Westen, ebenda S. 39.
+7\. Inschrift der Semiramis-Stele von Assur. --- St. ---.
 
-7 Inschrift der Semiramis-Stele von Assur. --- St. ---.
+9\. Salmanassar 3., der Schwiegervater der Semiramis (Stele im Brit. Mus.) --- Kl. --- Photographie Mansell.
 
-9 Salmanassar IIl., der Schwiegervater der Semiramis (Stele im Brit.
-Mus.) --- Kl. --- Photographie Mansell.
+15\. Künstlicher Durchblick an einer chaldischen Felsenfeste. --- St. --- Armenien 1. S. 484.
 
-15 Künstlicher Durchblick an einer chaldischen Felsenfeste. --- St. ---
+16\. Blick in das Tal des Bohtan-su (Kentrites), --- St. --- Armenien 1. S. 332.
 
-Armenien 1S. 484.
+17\. Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei Till. --- St. --- Armenien 1. S. 338.
 
-16 Blick in das Tal des Bohtan-su (Kentrites), --- St. --- Armenien I S. 332.
-17 Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei
-Till. --- St. --- Armenien I S. 338.
+19\. Bau eines Kelek. --- St. --- Armenien 1. S. 34 (nach der Aufnahme von E. Huntington, Zeitschrift für Ethnologie 33. (1901) S. 184.
 
-Abbildung auf
-Seite
-19 Bau eines Kelek. --- St. --- Armenien 1 S. 34 (nach der Aufnahme
-von E. Huntington, Zeitschrift für Ethnologie XXXII «1901)
-S. 184.
-20 Assyrisches Kelek (Reliefplatte, Brit. Museum). --- Kl. --- Layard,
-Il 13, Maspero I 617.
-21 Durchschwimmen eines Flusses auf einem Burdjuk. --- St. --- Arme-
-nien IS. 523 (nach Aufnahme von E. Huntington S. 194).
-22 Felsenbrücke unterhalb des Tigristunnel-Ausgangs. --- St. --- Arme-
-| nien I S. 432.
-23 Das untere Ende des Tigristunnels. --- St. --- Armenien I S. 435.
-24 Felsrelief und Inschrift Tiglatpilesers I. am Ausgange des Tigris-
-tunnels. --- Kl. --- Mat. S. 17 Fig. 7a.
+20\. Assyrisches Kelek (Reliefplatte, Brit. Museum). --- Kl. --- Layard, 2. 13, Maspero 1. 617.
+
+21\. Durchschwimmen eines Flusses auf einem Burdjuk. --- St. --- Armenien 1. S. 523 (nach Aufnahme von E. Huntington S. 194).
+
+22\. Felsenbrücke unterhalb des Tigristunnel-Ausgangs. --- St. --- Armenien 1. S. 432.
+
+23\. Das untere Ende des Tigristunnels. --- St. --- Armenien 1. S. 435.
+
+24\. Felsrelief und Inschrift Tiglatpilesers 1. am Ausgange des Tigristunnels. --- Kl. --- Mat. S. 17 Fig. 7a.
+
 25 An der Tigrisquelle --- Kl. --- Balawat Schiene J, Tafel IV.
-\ 26 (oben) Der westliche Teil des Tigrisfelsens.. --- St. --- Armenien I
+
+26 (oben) Der westliche Teil des Tigrisfelsens.. --- St. --- Armenien I
 S. 445.
+
 26 (unten) Natürlicher Durchgang im Tunnelfelsen. --- St. --- Arm. IS.
+
 27 Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel.
 --- St. --- Armenien IS. 449.
+
 29 Assyrische Krieger in bergigem Gelände. --- Kl. --- Layard II Tafel 37.
+
 30 Kampf zwischen Assyrern und Urartäern. --- Kl. --- Balawat Schien.
 B, Tafel 1.
+
 31 Opfer vor dem Königsbild und den Feldzeichen. --- Kl. --- Balawaet
 Schiene A, Tafel 1.
+
 32 Belagerungsmaschine. --- Kl. --- Layard I, Tafel 17.
+
 33 Transport eines urartäischen Tonkruges durch die Assyrer. --- Kl. ---
 Balawat Schiene, B, Tafel 1.
+
 34 (oben) Urartäischer Tempel mit bronzenen Weiheschildern, von
 Assyrern erstürmt. --- Kl. --- M. Botta Monument de Ninive, II
 . Taf. 141.
+
 34 (unten) Wuchtiger bronzener Thronfuß, von der Expedition ausge-
 graben auf Toprakkaleh bei Van. --- Kl. --- Mat. S. 96 Fig. 65.
+
 35 Kastell Sardurs am Fuße der Felsenburg von Van. --- Kl. --- Mat.
 S. 61 Fig. 37.
+
 36 König Samsi-Adad, der Gemahl der Semiramis (assyrische Stele, Brit.
 Museum) --- Kl. --- Photographie Mansell.
+
 37 Der höchste, westlichste der „Semiramis-Burg“ mit den türkischen
 Befestigungen. --- St. --- Armenien Bd. II.
+
 39 Die Argistis--Kammern auf der „Semiramis-Burg“. --- Kl. --- Nach
 Photographie des Verfassers, zuerst veröffentlicht in den Ver-
 handlungen d. Berl. anthropol. Ges. 1900 Tafel II.
 
-Abbildung auf
-Seite "
 40 Urartäische Anlage im lebendigen Festen auf der „Semiramis-Burg“
 --- St. --- Armenien Bd. I.
+
 41 Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs |
 Menuas (vgl. ob. S. 71) --- St. --- Armenien Bd...
+
 42 Überführung des „Semiramis-Kanals* über den Choschab. --- St. ---
 Armenien Bd. II.
+
 43 Guertschin-kalah, die „Taubenfeste* im Urmia-See. --- St. --- Arme-
 nien I S. 311.
+
 45 Kel-i-giaur, verstümmelte Stele auf Sockel. --- St. --- Armenien
 Bd. II (vgl. S. 71 zu S. 45).
+
 46 Die Expedition an der Kelischin-Stele. --- Kl. --- Nach Photographie
 von W, Belck. |
+
 47 Persischer Kurde vom Stamme Deibokri. dsg]. \
+
 48 Dorf Singa mit der Mädchenburg. --- St. --- Armenien I S, 247.
+
 49 Assyrisches Rundschiff. Layard II 12 N. 2, Maspero Ip. 549.
+
 50 (oben) Assyrisches Zeltlager (Berliner Museum) --- Kl. --- Nach Photo-
 graphie von C. Günther.
+
 50 (unten) Verfolgung eines flüchtigen Kamelreiters. London. --- Kl. ---
 Layard, I 57.
+
 51 Felsrelief: Der uralte Lulubäer-König Anubanini vor der Göttin
 Istar. --- Kl. --- Maspero II p. 603: Eduard Meyer: Sumerier und
 Semiten S. 25.
+
 54 Schamasch-resch-ußur zwischen Istar links und Adad rechts. --- Kl. ---
 Nach A. H. Weißbach Babylonische Miszellen (Wissenschaftl. Ver-
 öffentlichungen der Orient-Gesellschaft Nr. 4) Tafel I, S. 1.
+
 56, 57 Henkelfigur (älterer Besitz der vorderasiatischen Sammlungen der =
 Kgl. Museen zu Berlin): geflügelte Sonnenscheibe mit Chaldischer
 Göttin. Rückseite und Vorderseite. --- Kl. --- Mat. S. 87 Fig. 57 u. 58.
+
 58 Goldmedaille: Urartäische Königin mit ihrer Dienerin. --- St, --- “
 Mat. S. 84 Fig. 56.
+
 65 Assyrische Darstellung einer Anlage nach Art der hängenden
 Gärten (?) (Reliefplatte im Brit. Museum) --- Kl. --- Nach Perrot-
 Chipiez, Histoire de l’art dans l’antiquite II p. 143. \
+
 66 Zwei Keruben, Torhüterskulpturen, vom Verfasser in den Ruinen
 von Kalach-Nimrud aufgenommen --- Kl. --- Mat. S. 8 Fig. 3a.
+
 67 Statue im Nebotempel zu Kalach-Nimrud Vorderansicht. --- St. ---
 Mat. S. 14 Fig. 21. Desgl. Rückansicht --- St. --- Mat. Tafel V.
