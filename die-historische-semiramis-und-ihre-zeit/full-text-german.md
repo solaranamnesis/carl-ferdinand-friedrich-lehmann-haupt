@@ -2,10 +2,6 @@
 
 ## Von C. F. Lehmann.
 
-...
-
----
-
 ---
 
 [Alte Tigrisbrücke bei Djezîreh. (Zeichnung von Eugen Hanetzog.)]()
@@ -428,100 +424,68 @@ Abbildung auf Seite
 
 24\. Felsrelief und Inschrift Tiglatpilesers 1. am Ausgange des Tigristunnels. --- Kl. --- Mat. S. 17 Fig. 7a.
 
-25 An der Tigrisquelle --- Kl. --- Balawat Schiene J, Tafel IV.
+25\. An der Tigrisquelle --- Kl. --- Balawat Schiene J, Tafel 4.
 
-26 (oben) Der westliche Teil des Tigrisfelsens.. --- St. --- Armenien I
-S. 445.
+26\. (oben) Der westliche Teil des Tigrisfelsens. --- St. --- Armenien 1. S. 445.
 
-26 (unten) Natürlicher Durchgang im Tunnelfelsen. --- St. --- Arm. IS.
+26\. (unten) Natürlicher Durchgang im Tunnelfelsen. --- St. --- Arm. 1. S.
 
-27 Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel.
---- St. --- Armenien IS. 449.
+27\. Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel. --- St. --- Armenien 1. S. 449.
 
-29 Assyrische Krieger in bergigem Gelände. --- Kl. --- Layard II Tafel 37.
+29\. Assyrische Krieger in bergigem Gelände. --- Kl. --- Layard 2. Tafel 37.
 
-30 Kampf zwischen Assyrern und Urartäern. --- Kl. --- Balawat Schien.
-B, Tafel 1.
+30\. Kampf zwischen Assyrern und Urartäern. --- Kl. --- Balawat Schien. B, Tafel 1.
 
-31 Opfer vor dem Königsbild und den Feldzeichen. --- Kl. --- Balawaet
-Schiene A, Tafel 1.
+31\. Opfer vor dem Königsbild und den Feldzeichen. --- Kl. --- Balawaet Schiene A, Tafel 1.
 
-32 Belagerungsmaschine. --- Kl. --- Layard I, Tafel 17.
+32\. Belagerungsmaschine. --- Kl. --- Layard 1., Tafel 17.
 
-33 Transport eines urartäischen Tonkruges durch die Assyrer. --- Kl. ---
-Balawat Schiene, B, Tafel 1.
+33\. Transport eines urartäischen Tonkruges durch die Assyrer. --- Kl. --- Balawat Schiene, B, Tafel 1.
 
-34 (oben) Urartäischer Tempel mit bronzenen Weiheschildern, von
-Assyrern erstürmt. --- Kl. --- M. Botta Monument de Ninive, II
-. Taf. 141.
+34\. (oben) Urartäischer Tempel mit bronzenen Weiheschildern, von Assyrern erstürmt. --- Kl. --- M. Botta Monument de Ninive, 2. Taf. 141.
 
-34 (unten) Wuchtiger bronzener Thronfuß, von der Expedition ausge-
-graben auf Toprakkaleh bei Van. --- Kl. --- Mat. S. 96 Fig. 65.
+34\. (unten) Wuchtiger bronzener Thronfuß, von der Expedition ausgegraben auf Toprakkaleh bei Van. --- Kl. --- Mat. S. 96 Fig. 65.
 
-35 Kastell Sardurs am Fuße der Felsenburg von Van. --- Kl. --- Mat.
-S. 61 Fig. 37.
+35\. Kastell Sardurs am Fuße der Felsenburg von Van. --- Kl. --- Mat. S. 61 Fig. 37.
 
-36 König Samsi-Adad, der Gemahl der Semiramis (assyrische Stele, Brit.
-Museum) --- Kl. --- Photographie Mansell.
+36\. König Samsi-Adad, der Gemahl der Semiramis (assyrische Stele, Brit. Museum) --- Kl. --- Photographie Mansell.
 
-37 Der höchste, westlichste der „Semiramis-Burg“ mit den türkischen
-Befestigungen. --- St. --- Armenien Bd. II.
+37\. Der höchste, westlichste der "Semiramis-Burg" mit den türkischen Befestigungen. --- St. --- Armenien Bd. 2.
 
-39 Die Argistis--Kammern auf der „Semiramis-Burg“. --- Kl. --- Nach
-Photographie des Verfassers, zuerst veröffentlicht in den Ver-
-handlungen d. Berl. anthropol. Ges. 1900 Tafel II.
+39\. Die Argistis--Kammern auf der "Semiramis-Burg." --- Kl. --- Nach Photographie des Verfassers, zuerst veröffentlicht in den Verhandlungen d. Berl. anthropol. Ges. 1900 Tafel 2.
 
-40 Urartäische Anlage im lebendigen Festen auf der „Semiramis-Burg“
---- St. --- Armenien Bd. I.
+40\. Urartäische Anlage im lebendigen Festen auf der "Semiramis-Burg" --- St. --- Armenien Bd. 1.
 
-41 Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs |
-Menuas (vgl. ob. S. 71) --- St. --- Armenien Bd...
+41\. Stützmauer des "Semiramiskanals" mit Keilinschrift des Königs Menuas (vgl. ob. S. 71) --- St. --- Armenien Bd. 2.
 
-42 Überführung des „Semiramis-Kanals* über den Choschab. --- St. ---
-Armenien Bd. II.
+42\. Überführung des "Semiramis-Kanals" über den Choschab. --- St. --- Armenien Bd. 2.
 
-43 Guertschin-kalah, die „Taubenfeste* im Urmia-See. --- St. --- Arme-
-nien I S. 311.
+43\. Guertschin-kalah, die "Taubenfeste" im Urmia-See. --- St. --- Armenien 1. S. 311.
 
-45 Kel-i-giaur, verstümmelte Stele auf Sockel. --- St. --- Armenien
-Bd. II (vgl. S. 71 zu S. 45).
+45\. Kel-i-giaur, verstümmelte Stele auf Sockel. --- St. --- Armenien Bd. 2. (vgl. S. 71 zu S. 45).
 
-46 Die Expedition an der Kelischin-Stele. --- Kl. --- Nach Photographie
-von W, Belck. |
+46\. Die Expedition an der Kelischin-Stele. --- Kl. --- Nach Photographie von W. Belck.
 
-47 Persischer Kurde vom Stamme Deibokri. dsg]. \
+47\. Persischer Kurde vom Stamme Deïbokri. dsgl.
 
-48 Dorf Singa mit der Mädchenburg. --- St. --- Armenien I S, 247.
+48\. Dorf Singa mit der Mädchenburg. --- St. --- Armenien 1. S. 247.
 
-49 Assyrisches Rundschiff. Layard II 12 N. 2, Maspero Ip. 549.
+49\. Assyrisches Rundschiff. Layard 2. 12 N. 2, Maspero 1. p. 549.
 
-50 (oben) Assyrisches Zeltlager (Berliner Museum) --- Kl. --- Nach Photo-
-graphie von C. Günther.
+50\. (oben) Assyrisches Zeltlager (Berliner Museum) --- Kl. --- Nach Photographie von C. Günther.
 
-50 (unten) Verfolgung eines flüchtigen Kamelreiters. London. --- Kl. ---
-Layard, I 57.
+50\. (unten) Verfolgung eines flüchtigen Kamelreiters. London. --- Kl. --- Layard, 1. 57.
 
-51 Felsrelief: Der uralte Lulubäer-König Anubanini vor der Göttin
-Istar. --- Kl. --- Maspero II p. 603: Eduard Meyer: Sumerier und
-Semiten S. 25.
+51\. Felsrelief: Der uralte Lulubäer-König Anubanini vor der Göttin Istar. --- Kl. --- Maspero 2. p. 603; Eduard Meyer: Sumerier und Semiten S. 25.
 
-54 Schamasch-resch-ußur zwischen Istar links und Adad rechts. --- Kl. ---
-Nach A. H. Weißbach Babylonische Miszellen (Wissenschaftl. Ver-
-öffentlichungen der Orient-Gesellschaft Nr. 4) Tafel I, S. 1.
+54\. Schamasch-resch-ußur zwischen Istar links und Adad rechts. --- Kl. --- Nach A. H. Weißbach Babylonische Miszellen (Wissenschaftl. Veröffentlichungen der Orient-Gesellschaft Nr. 4) Tafel 1., S. 1.
 
-56, 57 Henkelfigur (älterer Besitz der vorderasiatischen Sammlungen der =
-Kgl. Museen zu Berlin): geflügelte Sonnenscheibe mit Chaldischer
-Göttin. Rückseite und Vorderseite. --- Kl. --- Mat. S. 87 Fig. 57 u. 58.
+56\, 57\. Henkelfigur (älterer Besitz der vorderasiatischen Sammlungen der Kgl. Museen zu Berlin): geflügelte Sonnenscheibe mit Chaldischer Göttin. Rückseite und Vorderseite. --- Kl. --- Mat. S. 87 Fig. 57 u. 58.
 
-58 Goldmedaille: Urartäische Königin mit ihrer Dienerin. --- St, --- “
-Mat. S. 84 Fig. 56.
+58\. Goldmedaille: Urartäische Königin mit ihrer Dienerin. --- St. --- Mat. S. 84 Fig. 56.
 
-65 Assyrische Darstellung einer Anlage nach Art der hängenden
-Gärten (?) (Reliefplatte im Brit. Museum) --- Kl. --- Nach Perrot-
-Chipiez, Histoire de l’art dans l’antiquite II p. 143. \
+65\. Assyrische Darstellung einer Anlage nach Art der hängenden Gärten (?) (Reliefplatte im Brit. Museum) --- Kl. --- Nach Perrot-Chipiez, Histoire de l'art dans l'antiquite 2. p. 143.
 
-66 Zwei Keruben, Torhüterskulpturen, vom Verfasser in den Ruinen
-von Kalach-Nimrud aufgenommen --- Kl. --- Mat. S. 8 Fig. 3a.
+66\. Zwei Keruben, Torhüterskulpturen, vom Verfasser in den Ruinen von Kalach-Nimrud aufgenommen --- Kl. --- Mat. S. 8 Fig. 3a.
 
-67 Statue im Nebotempel zu Kalach-Nimrud Vorderansicht. --- St. ---
-Mat. S. 14 Fig. 21. Desgl. Rückansicht --- St. --- Mat. Tafel V.
+67\. Statue im Nebotempel zu Kalach-Nimrud Vorderansicht. --- St. --- Mat. S. 14 Fig. 21. Desgl. Rückansicht --- St. --- Mat. Tafel 5.
