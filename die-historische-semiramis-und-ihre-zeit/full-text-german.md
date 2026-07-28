@@ -16,15 +16,15 @@ Die ersten epochemachenden englischen Entdeckungen im Zweistromlande erfolgten i
 
 Sie war also --- so mußte man zunächst annehmen, die Gattin Adadniraris, wie denn in einem Briefe, den Goethe im „Westöstlichen Divan,“ wenn auch schwerlich in ganz richtiger Übersetzung, wiedergibt, der Schah von Persien zum Kaiser von Rußland von der Zarin als von der „Frau des Palastes“ spricht. Schon die Erwähnung einer Frau in einer offiziellen Urkunde war an sich etwas höchst Außergewöhnliches. Zudem bezeichnet sie der Statthalter als seine Herrin, genau wie den König als seinen Herrn. So ergab sich, daß tatsächlich in Assyrien eine Herrscherin Semiramis gelebt hatte, von ungewöhnlicher Bedeutung und wohl geeignet zum Mittelpunkt eines Legendenkreises, dessen Entstehung im einzelnen man nachzugehen versuchen konnte. ---
 
-[Nebo-Statue aus Kalach-Nimrud.]()
+[Nebo-Statue aus Kalach-Nimrud.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-002.jpg)
 
 Daß sie die Gemahlin Adadniraris war, erschien zwar, wie bemerkt, als das Nächstliegende, aber nicht als das einzig Denkbare. Über ihre Stellung innerhalb des assyrischen Königshauses hat erst die allerjüngste Zeit Klarheit geschaffen durch einen bei den Ausgrabungen unserer Deutschen Orient-Gesellschaft in Assur gewonnenen Fund: einen Denkstein, der wohl als der wichtigste unter einer ganzen Gruppe höchst eigenartiger Monumente zu bezeichnen ist.
 
 Unweit einer der Befestigungsmauern von Assur sind nach und nach zwei einander parallele Reihen von Stelen gefunden worden, eine nördlichere und eine südlichere. Nur wenige stehen noch aufrecht (vgl. Abb. S. 5). Manche von ihnen sind mit der Vorderseite nach unten zu Boden gestürzt, von den Sockeln herunter, in die ihr zapfenartig auslaufendes Ende eingelassen war. Die Stelen der einen Reihe (Abb. S. 6) tragen Inschriften von assyrischen Herrschern, die andre weist auf ihren Steinsäulen nur die Namen von Statthaltern und Großwürdenträgern auf. Meist zeigen sie die Form viereckiger Steinpfeilern, die ihrer Anlage nach niemals ein Bildwerk getragen haben können. Das zu Beginn ihrer Inschriften stets erscheinende assyrische Wort, das man bisher als Bildsäule auffaßte, wird daher auch die Bedeutung Denksäule gehabt haben. Diese Inschrift ist jedesmal im oberen Teil der Vorderseite in einer vertieften Nische von der Form eines Amuletts angebracht. Abweichender Form sind namentlich nur eine sehr verstümmelte, 4 m hohe Königsstatue und ein achtseitiger Basaltpfeiler. Eine in ihrer Anlage ganz ähnliche, aber inschriftlose Stelenreihe ist, wie beiläufig bemerkt sei, bei den englischen Ausgrabungen in der palästinensischen Stadt Gezer gefunden worden. Freilich handelt es sich dort schwerlich um Denksäulen für Herrscher und Statthalter, während andrerseits der Gedanke, es seien die zwölf Stämme Israels mit je einer Stele zum Zwecke des Kultus vertreten, noch weiterer Prüfung bedarf.
 
-[Assur: Zwei Königsstelen.]()
+[Assur: Zwei Königsstelen.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-003.jpg)
 
-[Assur: Die Reihe der Königsstelen aus Westen.]()
+[Assur: Die Reihe der Königsstelen aus Westen.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-004.jpg)
 
 Eine der Stelen der monumentalen Königsliste von Assur trägt nun die folgende Inschrift:
 
@@ -36,7 +36,7 @@ Des Königs der Welt, Königs von Assyrien;
 Der ... des Sulmanuasaridu, Königs  
 Der vier Weltgegenden.“
 
-[Inschrift der Semiramis-Stele von Assur.]()
+[Inschrift der Semiramis-Stele von Assur.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-005.jpg)
 
 Semiramis war also die Mutter Adadniraris 4., als dessen Palastfrau sie in der Inschrift auf der Nebostatue genannt wurde. Sie ist die einzige Frau, die in dieser Reihe von Denksteinen mit einer solchen Stele vertreten ist. Auch hat man sich nicht begnügt, von ihr etwa zu sprechen als von der Gemahlin Samsi-Adads, des Vaters Adadniraris, sondern das Verhältnis der königlichen Frau zu drei Assyrerkönigen wird besonders hervorgehoben. Den an dritter Stelle erscheinenden Namen Salmanassar trägt sowohl der Vater ihres Gemahls, Salmanassar 3., wie der Nachfolger des Sohnes, Salmanassar 4. Die diesem Namen vorausgehenden Keilschriftgruppen sind nicht völlig klar. Die Königin wird durch sie entweder als Großmutter oder Vormündin des jüngeren Salmannassar oder aber, und wohl wahrscheinlicher, als Schwiegertochter des älteren genannt sein.
 
@@ -46,7 +46,7 @@ Auf unsrer Stele wird Semiramis als Palastfrau Samsi-Adads, ihres Gemahls, bezei
 
 Und merkwürdigerweise hat sich auch in der Semiramis-Sage eine Hindeutung auf dieses Verhältnis erhalten, die wir erst jetzt, da wir wissen, daß Schammuramat die Mutter Adadniraris gewesen, als einen historischen Zug voll zu würdigen imstande sind. Ninyas, ihr Sohn --- so hören wir durch Ktesias --- habe durch einen Eunuchen einen Anschlag auf das Leben der Semiramis versucht; sie aber habe ihrem Sohne nach dessen Entdeckung nicht nur nichts Übles zugefügt, sondern ihm die Herrschaft übergeben und die Statthalter angewiesen, ihm zu ge-horchen. Sie selbst aber habe sich das Leben genommen, als sei sie in Erfüllung eines Orakelspruchs zu den Göttern entrückt. Andre behaupteten, sie sei in eine Taube verwandelt worden.
 
-[Salmanassar 3., der Schwiegervater der Semiramis.]()
+[Salmanassar 3., der Schwiegervater der Semiramis.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-006.jpg)
 
 Daß kriegerischer Sinn und bedeutende Eroberungszüge der sagenhaften Vertreterin des kriegerischen Assyrerreiches zugeschrieben wurden, war an sich selbstverständlich. Nun aber trifft weiter zu, daß die Zeit, in der die geschichtliche Semiramis lebte, an kriegerischen Unternehmungen besonders reich war. Salmanassar 3. (860-826), ihr Schwiegervater, hat seine Waffen im Süden nach Babylonien, im Westen gegen Damaskus, Hamat und deren Verbündete, nicht minder auch nach Osten und Norden getragen, wie uns denn der bekannte Obelisk Salmanassars aus Kalach-Nimrud die Erfolge, die der Herrscher in allen Himmelsrichtungen errungen hatte, in den Tributen und Geschenken der unterworfenen und bekämpften Völker --- darunter dem des Jehu von Israel --- vor Augen führt. Sein Sohn aber, der Gemahl, und sein Enkel, der Sohn der Semiramis, haben es ihm nachgetan.
 
@@ -74,11 +74,11 @@ Und noch ein andres geschichtliches Interesse wohnt diesem einstigen Schauplatze
 
 Ich selbst aber bin in der glücklichen Lage, die Schauplätze dieser Züge und Kämpfe und mancher Altertümer, die sich aus dieser Urzeit erhalten haben, aus eigener Anschauung zu schildern und abzubilden, wie ich sie auf einer mit Förderung und Unterstützung Sr. Majestät des Kaisers 1898/99 unternommenen Forschungsreise vorgefunden und aufgenommen habe.
 
-[Künstlicher Durchblick an einer chaldischen Felsenfeste. (Zeichnung von Franz Frohse).]()
+[Künstlicher Durchblick an einer chaldischen Felsenfeste. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-007.jpg)
 
 Von meinen Routen kommt, entsprechend den beiden Hauptkriegsschauplätzen, für uns besonders das Stück zwischen Niniveh und dem Gebiet der beiden Tigrisquellströme, --- des Ost-Tigris oder Bohtan-su und des bei Argana zwischen Charput und Dijarbekir entspringenden West-Tigris --- und ferner das Gelände zwischen dem Van-See und dem Urmia-See in Betracht. --- Folgen wir zunächst Salmanassar 3., dem Schwiegervater der Semiramis, auf seinen Kriegszügen gegen die Urartäer.
 
-[Blick in das Tal des Bohtau-su (Kentrites), südlich von Söört. (Zeichnung von Franz Frohse).]()
+[Blick in das Tal des Bohtau-su (Kentrites), südlich von Söört. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-008.jpg)
 
 Bei Djezîreh, in dessen Nachbarschaft der Tigris überschritten wird, blicken wir nordwärts zum Djebel Djudi, der --- zu den südlichen Randgebirgen des Landes Ararat gehörig --- vielfach als der Gebirgsstock gilt, an dem das Schiff des Xisuthros, des babylonischen Noah, durch Cyklone und Springfluten aus dem persischen Golfe nach Norden getrieben, einstmals haften geblieben ist. Eine großartige Brückenruine aus mongolischer oder persischer Zeit gibt heute einen eindrucksvollen Rahmen für das herrliche Landschaftsbild ab. (Abb. S. 1).
 
@@ -86,13 +86,13 @@ Den Ost-Tigris südlich von Söört zu überschreiten, erweist sich wegen der St
 
 Schon Salmanassars 3. Vater erwähnt die Stadt und Feste Tilla unter dem Namen, den sie noch heute führt.
 
-[Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei Till. (Zeichnung von Lucy du Bois-Reymond).]()
+[Zusammenfluß des Ost-Tigris (Bohtan-su) mit dem West-Tigris bei Till. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-009.jpg)
 
 Von der Südspitze der felsigen Halbinsel erblickt man tief unter sich --- zwei großen Silberschlangen vergleichbar, die ihrer Vereinigung eher zu widerstreben als zuzueilen scheinen und deshalb kurz zuvor noch einmal sich winden und krümmen, --- zur Rechten und gerade von Westen kommend den westlichen Tigris, zur Linken von Norden her fließend den Bohtan-su. Eben an der Südspitze von Till, die sich als letztes Bollwerk zwischen sie schiebt, vermählt sich das häufig rotgefärbte Wasser des Bohtan-su mit dem hellgrünlichgrauen des West-Tigris. Gemeinsam machen sie dann einen mächtigen, edel geschwungenen Bogen nach Süden --- der Strom ist hier kaum weniger als 1/2 Kilometer breit ---, um alsdann in südöstlicher Richtung, von Felsen eingeengt und den Blicken bald entzogen, weiter zu strömen; von der Schönheit des Farbenspiels, besonders zur Abendzeit, läßt sich schwer ein Begriff geben. Bei und nach Sonnenuntergang lagen hoch über dem West-Tigris die Wolken in Rotviolett und Gold getaucht; der ganze Strom, wie er vor Till vorbeifließt, war rosig gefärbt, so daß das nicht mehr beleuchtete rote Wasser des Bohtan-su dagegen fahl und farblos erschien. Das im Osten lagernde schwere Gewölk erstrahlte mit den Bergen darunter in tiefdunklem Purpurglanze.
 
 Der West-Tigris ist von Dijarbekir ab schiffbar. Von Till aus sah ich zwei mit Säcken schwer beladene Keleks dicht hinter einem Felsen, den sie geschickt passiert hatten, mit großen Rudern gesteuert, von Westen her den Gesamt-Tigris hinabgleiten. Auch die Bewohner von Till bedienten sich dieser Gefährte zum Übersetzen über den Bohtan-su und bei der Fischerei.
 
-[Bau eines Kelek. (Zeichnung von Franz Frohse).]()
+[Bau eines Kelek. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-010.jpg)
 
 Ihre Herstellung ist einfach genug. Aufgeblasene Hammelhäute (sog. Burdjuks) werden unter einem Gerüst, das bei kleineren Keleks aus Weidenruten oder sonstigem biegsamen Material besteht, angebracht; darüber wird eine Schicht von Brettern und auf diese Stroh, Schilf oder Moos gelegt, und das Fahrzeug ist zur Aufnahme von Personen oder Lasten bereit. Die Größe wie auch die Festigkeit des Gerüstes schwankt je nach der Zahl der Schläuche; es können für größere Fahrten und Warentransporte ihrer bis 300 und mehr zusammengefügt werden. Das Kelek, gewiß in mancher Hinsicht ein recht unbequemes Gefährt, hat doch auch seine Vorteile: es bewährt sich namentlich auf Gebirgsströmen von ungleichmäßiger Tiefe und wechselnder Stromgeschwindigkeit. Hier trägt es seine Insassen, wie es vor allem unser Moltke erprobt hat, glücklich durch die Stromschnellen hindurch, wenn es auch, vom Wirbel erfaßt und beständig herumgedreht, ihnen ein gründliches und bei der herrschenden Hitze meist nicht unwillkommenes Bad verschafft.
 
