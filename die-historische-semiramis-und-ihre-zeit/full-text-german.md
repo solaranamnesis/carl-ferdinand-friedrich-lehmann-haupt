@@ -4,7 +4,7 @@
 
 ---
 
-[Alte Tigrisbrücke bei Djezîreh. (Zeichnung von Eugen Hanetzog.)]()
+[Alte Tigrisbrücke bei Djezîreh. (Zeichnung von Eugen Hanetzog.)](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-001.jpg)
 
 Trotz der sagenhaften Umhüllung, in der die Nachrichten über Ninos und Semiramis uns bei Ktesias entgegentreten, konnte man ehedem glauben, daß wirklich am Anfang der Geschichte des gesamten Zweistromlandes als Begründerin Ninives oder gar Babylons eine Herrscherin des Namens Semiramis gestanden hätte. Diese Zeiten sind endgültig vorbei. Die Entzifferung der Keilschrift durch Georg Friedrich Grotefend und die Erschließung der inschriftlichen Schätze des Zweistromlandes lehrten uns die Anfänge der Geschichte Babyloniens und des von ihm erst nachträglich sich ablösenden Assyrien kennen: für eine Reichsgründerin Semiramis fand sich dort nirgends eine Spur noch Raum. So hätte man denken können, daß, was Ktesias, der als Leibarzt des persischen Großkönigs Artaxerxes 2. um 400 v. Chr. in Susa lebte, über die Semiramis berichtete, Sage, nichts als Sage sei, die er der iranischen Volksüberlieferung --- den Gesängen und Mären der Meder und Perser --- abgelauscht habe.
 
