@@ -206,37 +206,37 @@ Im oberen Choschab-Thal erhebt sich eine malerische Feste, die heute die Ruinen 
 
 Bis sie aber dortin gelangten, waren auf vielfach schwierigen Märschen die Gebiete diesseits der persisch-türkischen Grenze zu durchkreuzen und schließlich die Grenzgebirge selbst zu übersteigen. Auf der Höhe des Passes, der von Osten in das südliche Seegebiet führt, steht noch heute, so wie sie vor 2700 Jahren von Ispuinis und Menuas errichtet wurde, eine Stele, Kel-i-schin, „der grüne Pfeiler,“ wie ihn die Kurden nennen; sie hat dem Berge und dem Passe selbst den Namen gegeben. Von der älteren und jüngeren Sage umsponnen --- die Zuweisung an die Semiramis fehlt auch hier nicht ---, gibt dieser Pfeiler mit seiner zweisprachigen urartäisch-assyrischen Inschrift noch heute Kunde aus den Zeiten der Semiramis. Eine unheimliche Stätte, im Winter durch gewaltige, plötzlich entstehende Schneewehen gefährdet, im Sommer berüchtigt durch die Überfälle der in diesen Grenzgebieten besonders zügellosen, räuberischen Kurden, hat die Stele kaum einen Besucher gesehen, der nicht bei einem auch nur flüchtigen Aufenthalte hier mit Naturgewalten oder den Bewohnern der Nachbarschaft ein ernsteres Abenteuer zu bestehen gehabt hätte. Ich darf bei den eigenen Erlebnissen und Ergebnissen unserer Expedition hier nicht verweilen, sondern muß auf deren Schilderung im achten Kapitel meines Reisewerkes verweisen.
 
-[Guertschin-kalah, die „Taubenfeste“ im Urmia-See. (Zeichnung von Lucy du Bois-Reymond).]()
+[Guertschin-kalah, die „Taubenfeste“ im Urmia-See. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-034.jpg)
 
 Mit Hilfe der persischen Kurden aus dem Dorfe Haek, bei denen wir zu Gaste waren, gelang es uns während eines zweimaligen Besuches, die bisher nur aus schnell gefertigten Abklatschen bekannten Inschriften des Kelischin im Original zu prüfen (Abb. S. 46).
 
 Die Stele ist gleich andern urartäischen Schriftdenkmälern dieser Art mittels eines Zapfens in einen über den Boden hinausragenden quadratischen wuchtigen Sockel eingelassen (Abb. S. 45). Ganz das gleiche ist in Assur der Fall, und da die dortige Stelenreihe weit über die urartäische Zeit zurückgeht, so erkennen wir, daß die Urartäer mit der schrift (S. 12) auch die Form der Urkunden in wesentlichen Zügen von den Assyrern übernommen haben.
 
-[Kel-i-giaur: verstümmelte Stele mit zweisprachiger, urartäischassyrischer Inschrift, auf Sockel in ihrer ursprünglichen Stellung unweit des Kelischin. (Zeichnung von Helfriede Haupt).]()
+[Kel-i-giaur: verstümmelte Stele mit zweisprachiger, urartäischassyrischer Inschrift, auf Sockel in ihrer ursprünglichen Stellung unweit des Kelischin. (Zeichnung von Helfriede Haupt).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-035.jpg)
 
 Die Kelischin-Stele war das letzte Monument, das Schulz, der Pfadfinder auf diesem Forschungsgebiete, besuchte; wenige Tage später fiel er von der Hand eines räuberischen Kurdenhäuptlings.
 
-[Die Expedition an der Kelischin-Stele.]()
+[Die Expedition an der Kelischin-Stele.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-036.jpg)
 
 Auf den ersten Blick keineswegs unsympathisch, läßt das Antlitz der Kurden doch zumeist alsbald einen lauernden, auf Blutgier und Grausamkeit deutenden Zug erkennen, ob sie nun den persisch-türkischen Grenzgebieten oder beispielsweise den Gebirgen südlich des Vansees angehören, wo ich der Schlimmsten einen --- Schäkir-Agha ---, den Leiter der Armenier-Metzeleien in Van im Jahre 1895, mit seiner Sippe kennen lernte.
 
-[Persischer Kurde vom Stamme Deibokri (Umgegend von Sautschbulaq südlich des Urmia-Sees).]()
+[Persischer Kurde vom Stamme Deibokri (Umgegend von Sautschbulaq südlich des Urmia-Sees).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-037.jpg)
 
 Da, wo die vom Kelischin nach Osten herabführende Straße in die Ebene einmündet, liegt unweit Haek das Kurdendorf Singa, überragt von einer stattlichen Feste (Abb. S. 48). Sie heißt Kiz-kalah, die Mädchenburg, weil sie von einem Mädchen in einer Nacht erbaut sein soll. Dieser Name und diese Legende finden sich in diesen Gebieten wiederholt für Anlagen aus unvordenklicher Zeit. Bedenkt man, daß schon im griechischen Ninos-Roman aus der Semiramis die namenlose Jungfrau geworden war (S. 11), so ist der Schluß nicht abzuweisen, daß dieses Mädchen eine letzte verblaßte Gestalt darstellt, in der die große Bauherrin des alten Orients noch heute bei den Mohammedanern fortlebt. In der Tat ist dieser Burghügel ein Tell, das heißt ein Ruinenhügel, dessen Kern die durch Ziegel erbaute und steil gebaute Plattform einer assyrischen Feste bildet; die Mädchenburg von Singa ist ohne Zweifel ein Sperrfort, das zu Semiramis Zeiten von den Assyrern gegen die über den Kelischin zum Urmiasee vordringenden Urartäer errichtet ward. ---
 
-[Dorf Singa mit der Mädchenburg. (Zeichnung von Lucy du Bois-Reymond).]()
+[Dorf Singa mit der Mädchenburg. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-038.jpg)
 
 Auf dem Urmiasee hat schon Salmanassar 3., den Anwohnern Kämpfe geliefert. Dabei kamen neben den Keleks Schiffe zur Verwendung, deren Rumpf aus Tierhäuten besteht, die über ein Holzgestell oder Rohrgeflecht gespannt wurden (Abb. S. 49).
 
 Auch diese Fahrzeuge wurden, wie ein assyrisches Relief zeigt, gleich den Keleks zum Transport gebraucht, und in dieser Verwendung schildert sie Herodot als das größte Wunder, das ihm im Zweistromlande begegnet sei, mit einer Genauigkeit, die keinen Zweifel daran läßt, daß er sie aus eigener Anschauung kennt.
 
-[Assyrisches Rundschiff, wie es auch von Herodot beschrieben wird.]()
+[Assyrisches Rundschiff, wie es auch von Herodot beschrieben wird.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-039.jpg)
 
 Zu Lande bildet heutzutage im nordwestlichen Persien das Dromedar das Haupttransportmittel. In diese oder in die weiter nach Südosten belegenen medischen Gebiete führt uns die Darstellung eines assyrischen Zeltlagers aus unsern Königlichen Museen, in der zwei zärtliche Kamele eine Hauptrolle spielen, während in einem Zelte einem ermüdet heimkehrenden Krieger beim Eintreten ein Trunk geboten und das Ruhelager bereitet wird (Abb. S. 50). Auch die gut beobachtete Verfolgung des flüchtigen Kamelreiters auf einer Reliefplatte im Britischen Museum wird häufig genug stattgefunden haben (Abb. S. 50).
 
-[Assyrisches Zeltlager.]()
+[Assyrisches Zeltlager.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-040.jpg)
 
-[Verfolgung eines flüchtigen Kamelreiters.]()
+[Verfolgung eines flüchtigen Kamelreiters.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-041.jpg)
 
 Solange der Sohn der Semiramis, größtenteils unter der Leitung seiner Mutter, regierte, hielten sich Assur und Urartu in diesen Gebieten die Wage, wenngleich ein allmähliches Vordringen der Urartäer nicht zu verkennen ist und auch die Meder trotz allem allmählich an Boden gewannen.
 
@@ -248,9 +248,9 @@ War aber aus der Lieblingsgemahlin eines Assyrerkönigs dergestalt die Reichsgr�
 
 Die Lenkerin und Begründerin des kriegerischen Reiches verschmolz mit der Göttin Istar (Astarte), in deren Namen größtenteils die Kriegszüge der Assyrer erfolgten, und die wir auf einem zu Babylon in den Ausgrabungen der Deutschen Orient-Gesellschaft gefundenen Relief mit dem Bogen bewaffnet dargestellt sehen (Abb. S. 54). Ohnehin war diese Gottheit in den Gebieten östlich des Tigris lange vor dem Einrücken der Meder eine wohlbekannte Gestalt. Davon legt noch heute ein Felsrelief Zeugnis ab, das ein uralter vormedischer König dieser Kriegsgöttin, der Förderin seiner Siege, gewidmet hat. Die Frauengestalt, die einen unterworfenen Fürsten, dem eine ganze Anzahl seiner Untergebenen gebunden folgen, an einem durch die Lippe gezogenen Ringe herbeiführt (Abb. S. 53), konnte den Medern ohne weiteres als eine Darstellung der Semiramis gelten.
 
-[Felsrelief im Zagros-Gebirge: Der uralte Lulubäer-König Anubanini vor der Göttin Istar.]()
+[Felsrelief im Zagros-Gebirge: Der uralte Lulubäer-König Anubanini vor der Göttin Istar.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-042.jpg)
 
-[Schamasch-resch-ußur zwischen Istar links und Adad rechts.]()
+[Schamasch-resch-ußur zwischen Istar links und Adad rechts.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-043.jpg)
 
 Die Istar war aber gleichzeitig Kriegs- und Liebesgöttin. Im babylonischen Nationalepos weist dessen Held Gilgamisch ihre Werbungen ab und wirft ihr dabei ihre Liebschaften und die Behandlung, die sie ihren Liebhabern hat angedeihen lassen, vor: „Tammuz, dem Buhlen deiner Jugend, Jahr für Jahr bestimmtest du ihm Weinen. Als du den bunten Hirtenknaben-Vogel liebtest, schlugst du ihn und zerbracht seinen Flügel. Im Walde steht er und ruft: mein Flügel!“ ... „Als du den Hirten der Herde liebtest, der dir beständig Salz hinschüttete, dir täglich Zicklein schlachtete, schlugst du ihn und verwandeltest ihn in einen wilden Hund. Es verjagen ihn seine eigenen Hirtenknaben, und seine Hunde beißen sein Fell.“ Ebenso schlimm ist es dem Ischullanu ergangen, „dem Gartner deines Vaters, der dir beständig Blumensträuße zuträgt, täglich deinen Tisch strahlen macht,“ und Gilgamisch schließt: „Auch mich willst du, mich lieben und jenen gleich machen.“ So wären aus der bloßen Verschmelzung mit der Istar auch die Liebesabenteuer, die der Semiramis in der Sage zugeschrieben werden, erklärlich, selbst wenn die geschichtliche Semiramis dazu etwa keinen Anlaß bot.
 
@@ -264,15 +264,15 @@ Aber, von anderen Bedenken abgesehen, die Armenier wissen im übrigen sehr gut, 
 
 Sollte es da lediglich der werbenden Kraft und der Wucht, die gerade der Semiramissage innewohnt, zuzuschreiben sein, daß die Semiramis aus einer Feindin zur Förderin der großen Werke, die die Armenier in ihrer neuen Heimat vorfanden, erwuchs. Viel leichter würde sich diese, die Tatsachen umkehrende Verschmelzung erklären, wenn wirklich Frauenhand und Frauenklugheit auf urartäischer Seite an der Schöpfung der großartigen Felsen- und Wasserbauten mitgewirkt hätte.
 
-[Henkelfigur: geflügelte Sonnenscheibe mit chaldischer Göttin (Rückseite).]()
+[Henkelfigur: geflügelte Sonnenscheibe mit chaldischer Göttin (Rückseite).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-044.jpg)
 
 Und in der Tat, die Frau muß bei den Urartäern eine sehr bedeutende Rolle gespielt haben. Sonst würde nicht in der geflügelten Sonnenscheibe, die überall --- bei den Ägyptern, von denen sie ausgegangen ist, bei den Assyrern und bei den Persern --- stets das Bild der obersten Gottheit trägt, bei den Urartäern eine Frau erscheinen. So wird die geflügelte Sonnenscheibe dargestellt in den Henkelfiguren großer Bronzegefäße, die mehrfach in Armenien, aber auch in deutlicher Nachahmung dieser urartäischen Vorbilder in Olympia und an anderen Stätten älterer griechischer Kultur zutage getreten sind. Die Haartracht der Göttin gleicht der der heutigen Georgierinnen, und die Georgier haben auch aus anderen Gründen als Reste jener kleinasiatischen Urbevölkerung zu gelten, der die Urartäer angehören.
 
-[Chaldische Göttin in geflügelter Sonnenscheibe (Vorderansicht).]()
+[Chaldische Göttin in geflügelter Sonnenscheibe (Vorderansicht).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-045.jpg)
 
 Und eine urartäische Königin mit ihrer Dienerin stellt nach der neuesten und besten Deutung jenes Goldplättchen in getriebener Arbeit dar, das --- nicht viel kleiner als ein Fünfmarkstück --- durch unsere Ausgrabungen auf dem Königssitze Toprakkaleh bei Van in einem jener bereits besprochenen riesigen Krüge des Magazins gefunden worden ist. Als Kunstwerk an sich, als Darstellung des urartäischen Frauentypus und als die älteste aller Medaillen, die auf uns gekommen sind, darf diese Goldplatte ein besonderes Interesse beanspruchen. Sie ist mit der Mehrzahl der übrigen Ergebnisse unserer Ausgrabungen kürzlich in den Besitz unserer Königlichen Museen übergegangen.
 
-[Goldmedaille (5/4 natürlicher Größe): urartäische Königin mit ihrer Dienerin. (Zeichnung von Franz Frohse).]()
+[Goldmedaille (5/4 natürlicher Größe): urartäische Königin mit ihrer Dienerin. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-046.jpg)
 
 Vernahmen die Armenier bei ihrer Einwanderung in das Quellgebiet des Euphrat und des Tigris, daß bei den Chaldern, die sie verdrängten, damals und vor Zeiten, als jene großartigen Felsen- und Wasserbauten entstanden, der Frau im Kultus, im Leben und in der Herrschaft eine überragende Rolle zuerkannt wurde, so ergab sich nun die Einsetzung der Semiramis, die bei dem herrschenden Volke, den Persern, als größte Herrscherin und Bauherrin der Vorzeit gepriesen wurde, naturgemäß und ungezwungen.
 
@@ -300,19 +300,19 @@ Da Semiramis Babylonien nicht minder wie Assyrien angehörte, so konnte sie, vom
 
 Gerade die hängenden Gärten, die in der landläufigen Vorstellung am engsten mit der Semiramis verknüpft sind, werden auch bei Ktesias ausdrücklich nicht der Semiramis zugeschrieben, sondern der Gemahlin eines späteren Königs. In Wahrheit wurden sie nach dem Zeugnis des Berossos von Nebukadnezar für seine medische Gemahlin erbaut, um ihr die bergige Landschaft der Heimat im Abbilde nahe zu bringen. Anpflanzungen auf Dächern oder Terrassen nach Art solcher hängenden Gärten mögen in kleinerem Maßstabe schon vor Nebukadnezar öfter ausgeführt sein, wenigstens hat man ein assyrisches Relief (Abb. S. 65) in diesem Sinne deuten wollen. Daß mitten in der Sage dieser auf medische Dinge bezügliche rein historische Zug sich erhalten hat, kann als eine weitere Bestätigung für die Entstehung der Semiramis-Sage bei den Medern gelten.
 
-[Assyrische Darstellung einer Anlage nach Art der hängenden Gärten. (?)]()
+[Assyrische Darstellung einer Anlage nach Art der hängenden Gärten. (?)](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-047.jpg)
 
 Auf die Meder weist noch ein andrer Zug dieser Sage. Nach Ktesias soll Semiramis bei ihren Feldzügen im Osten eine Kleidung erfunden haben, die unmöglich machte, zu unterscheiden, ob der Träger ein Mann oder eine Frau sei. Diese Tracht sei so kleidsam gewesen, daß später die Meder und nach ihnen die Perser sie angenommen hätten. Die Hose, als deren Erfinderin somit den Griechen die Semiramis galt, ist tatsächlich zuerst bei den Medern nachweisbar.
 
 Erst die spätere Weiterentwicklung der Sage hat dann auch die hängenden Gärten der mythischen Semiramis zugesprochen. Ihre Fundamente werden in Babylon auf dem Gelände des großen Palastes Nebukadnezars, ihres Erbauers, oder in deren Nachbarschaft zu finden sein.
 
-[Zwei Keruben: Torhüterskulpturen, in den Ruinen von Kalach-Nimrud in situ aufgenommen.]()
+[Zwei Keruben: Torhüterskulpturen, in den Ruinen von Kalach-Nimrud in situ aufgenommen.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-048.jpg)
 
 In Kalach hingegen besteht noch heute eine Stätte, an der das Andenken der historischen Semiramis unmittelbar lebendig zu uns spricht.
 
 Wir betreten die einst vom Tigris bespülte Plattform von Nimrud und lassen die Pyramide, die den von Salmanassar 3. erbauten Tempel des Ninib birgt und die uns aus der Ferne gegrübt hat, genau wie sie Xenophon in seiner Anabasis schildert, hinter uns. Einen Augenblick verweilen wir auf dem mit unzähligen freiliegenden Skulpturen und Inschriftplatten von den englischen Ausgrabungen her übersäten Trümmerfelde an einem Paar von Keruben, die an der Stelle, wo sie einst als Torhüter aufgestellt waren, umgestürzt sind und in besonders eindrucksvoller Weise zueinander und zu uns von der Vergänglichkeit irdischer Herrlichkeit zu sprechen scheinen (Abb. S. 66). Dann nähern wir uns dem Südostrande der großen Stadtruine und sehen dort, von mehreren Seiten bequem zugänglich, eine Statue zur Hälfte aus der Erde hervorragen. Trotz ihrer Verwitterung gibt sie sich ohne weiteres als eine Wiederholung der oben (S. 3) abgebildeten Nebostatue zu erkennen. Der Nebotempel, der auf Semiramis Betreiben erbaut wurde, war mit zahlreichen teils beschriebenen (S. 2), teils inschriftlosen Statuen des Gottes ausgestattet. Sie alle sind in die europäischen Museen verbracht worden. Nur dieses letzte dort verbliebene Bild des Gottes bezeichnet noch heute die Stätte jenes Tempels, und bildet so an Ort und Stelle bis auf diesen Tag ein Wahrzeichen des Wirkens der historischen Semiramis!
 
-[Statue im Nebotempel zu Kalach-Nimrud. Vorderansiicht. Rückansicht. (Zeichnungen von Lucy du Bois-Reymond).]()
+[Statue im Nebotempel zu Kalach-Nimrud. Vorderansiicht. Rückansicht. (Zeichnungen von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-049.jpg)
 
 Wir stehen am Schlusse. Von der sagenhaften Umhüllung befreit, sehen wir Semiramis vor uns als eine Herrschergestalt, die zu einer Zeit, da sonst der Frau eine Beteiligung am Öffentlichen Leben versagt war, die Geschicke zweier, vornehmlich durch ihre Klugheit und Umsicht verbundener Reiche in Krieg und Frieden entscheidend und durchgreifend geleitet hat.
 
