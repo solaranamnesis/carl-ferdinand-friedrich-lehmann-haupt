@@ -98,7 +98,7 @@ Ihre Herstellung ist einfach genug. Aufgeblasene Hammelhäute (sog. Burdjuks) we
 
 Mit dem Kelek aber ragt wiederum die älteste Zeit lebendig in die Gegenwart hinein. Genau so wie sie heute den Tigris hinabfahren, waren die Fahrzeuge aus Hammelhäuten schon auf den Reliefplatten der assyrischen Paläste dargestellt, und die Fische, die das assyrische Schlauchfloß umspielen, geben in größter Naturtreue eine für den Tigris noch heute charakteristische, schmackhafte Karpfenart wider, die ich in Till zu kosten bekam.
 
-[Assyrisches Kelek.]()
+[Assyrisches Kelek.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-011.jpg)
 
 Das Durchschwimmen der Ströme mittels eines einzelnen Burdjuks, wie es die assyrischen Darstellungen mehrfach zeigen, ist gleichfalls heute noch üblich. Ich habe es an historischer Stätte zwischen Monsul und Niniveh beobachten können (Abb. S. 21). ---
 
@@ -106,21 +106,21 @@ Zwei bis drei Tagereisen in nordwestlicher Richtung führen Salmanassar 3. und u
 
 Unter einer natürlichen Felsenbrücke hindurch gelangen wir zu einem mächtigen Felsentor, aus dem ein Zufluß des Westtigris hervorströmt, und finden an dessen Wänden ein kleines Bildnis und eine Inschrift Tiglatpilesers 1. (vor 1000 v. Chr.), die er bei seinem dritten Feldzuge in die Naíri-Länder hier angebracht hat, und stellen ferner --- vielfach abweichend von den Vorstellungen, die man sich auf Grund der Berichte und der Abklatsche früherer, der Keilschrift nicht kundiger Besucher der Stätte gebildet hatte, --- zwei große Inschriften unsres Salmanassar fest.
 
-[Durchschwimmen eines Flusses auf einem Burdjuk. (Zeichnung von E. Hanetzog).]()
+[Durchschwimmen eines Flusses auf einem Burdjuk. (Zeichnung von E. Hanetzog).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-012.jpg)
 
 Ihre Lesung wird erschwert durch den höchst unregelmäßigen Verlauf ihrer Zeilen auf der Felsfläche. Daß dies eine unerfreuliche Eigentümlichkeit des Hofsteinmetzen Salmanassars 3. war, zeigen Inschriften desselben Königs, die in Assur bei den Ausgrabungen der deutschen Orient-Gesellschaft gefunden worden sind.
 
-[Felsenbrücke unterhalb des Tigristunnel-Ausgangs. (Zeichnung von Franz Frohse).]()
+[Felsenbrücke unterhalb des Tigristunnel-Ausgangs. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-013.jpg)
 
 Aus den historischen, epigraphischen und geographischen Ergebnissen, die in unerwarteter Fülle hier des Forschers harrten, seien nur einige wenige hervorgehoben; im übrigen muß hierfür wie für manches andre auf die Schilderung und die Abbildungen im ersten Bande meines vor kurzem erschienenen Reisewerks „Armenien einst und jetzt“ verwiesen werden.
 
-[Das untere Ende des Tigristunnels. (Zeichnung von Franz Frohse).]()
+[Das untere Ende des Tigristunnels. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-014.jpg)
 
 Im Gegensatz zu Tiglatpileser 1., seinem einzigen erweislichen Vorgänger an dieser Stätte, behauptet Salmanassar 3. in jenen --- aus seinem 15. Regierungsjahre stammenden --- Inschriften der Tigrishöhle, sie seien an der Quelle des Tigris angebracht. Dabei ist ihm aber nachweislich nicht wohl zumute gewesen. Denn als eigentliche Quelle des Westtigris betrachtet Salmanassar, genau wie wir, den bei Argana viel weiter im Westen entspringenden Tigrisarm. „Den Ort selbst, wo die Wasser hervorquellen,“ --- so drückt er sich in seinen Annalen aus --- hatte Salmanassar in einem früheren Regierungsjahre aufgesucht, dort auch die der Quelle und ihrer Gottheit gebührenden Opfer dargebracht und sein Königsbild aufgestellt.
 
-[Felsrelief und Inschrift Tiglatpilesers 1. am Ausgange des Tigristunnels.]()
+[Felsrelief und Inschrift Tiglatpilesers 1. am Ausgange des Tigristunnels.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-015.jpg)
 
-[An der Tigrisquelle (Palasttore von Balawat).]()
+[An der Tigrisquelle (Palasttore von Balawat).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-016.jpg)
 
 Dieser Vorgang tritt uns auch im Bilde entgegen auf den Kupferbeschlägen, die die Tore des Palastes schmücken, den Salmanassar sich in der heute Balawat genannten, assyrischen Stadt errichtete.
 
@@ -128,11 +128,11 @@ Auf den ersten Blick sieht man, daß es sich um eine von der bisher geschilderte
 
 Für diese Verschiedenheit der Örtlichkeiten ergeben sich nun --- und zwar wiederum durch Ineinandergreifen heutiger Beobachtungen an Ort und Stelle und inschriftlicher Zeugnisse --- noch weitere Beweise. Fast allgemein wurde heutzutage angenommen, daß der Wasserlauf, der jenem Felsentor entströmt, im Innern des Felsens entspringe, so daß man vor einer Quellgrotte zu stehen glaubte. Und der Wunsch, bis zu der Stelle vorzudringen, wo in dem Innern der Höhle das Wasser hervortritt, schien ebenso berechtigt wie unerfüllbar. Ich war daher sehr überrascht, als eines Tages mein ortskundiger kurdischer Begleiter den Ursprungsort des Flusses als bekannt erwähnte und auf meine erstaunte Frage sich bereit erklärte, mich ihm näher zu bringen. Der Felsen, dem der Fluß entströmt, trägt eine vorarmenische Felsenfestung und zeigt die für die Urartäer charakteristischen Felsentreppen und Felsenkammern. (Abb. S. 26). Durch einen natürlichen giebelförmigen Durchgang in mittlerer Höhe des Felsens (Abb. S. 26) gelangen wir auf dessen nördliche Seite, und zwischen blühenden Weißdornsträuchern aufwärts steigend zu einer Felsenkanzel, von der sich in der Tiefe, soweit das Auge reicht, ein Gewässer im offenen Bette auf mich zufließen sah. Rechts neben mir und hinter mir aber öffnete sich ein enges, düsteres Felsentor, durch das der Bach mit ziemlich scharfer Wendung in den Berg eintritt und darin verschwindet. So haben wir es denn nicht mit einer Quellgrotte zu tun, sondern mit einem Felsentunnel, den der Fluß nach längerem freien Laufe durchströmt.
 
-[Der westliche Teil des Tigristunnelfelsens von Süden gesehen. Im Vordergrunde eine Felsentreppe, links davon ein Türeinschnitt. (Zeichnung von Franz Frohse).]()
+[Der westliche Teil des Tigristunnelfelsens von Süden gesehen. Im Vordergrunde eine Felsentreppe, links davon ein Türeinschnitt. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-017.jpg)
 
-[Natürlicher Durchgang im Tunnelfelsen. (Zeichnung von Lucy du Bois-Reymond).]()
+[Natürlicher Durchgang im Tunnelfelsen. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-018.jpg)
 
-[Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel. (Zeichnung von Lucy du Bois-Reymond).]()
+[Der freie Oberlauf des Flusses und sein Eintritt in den Tunnel. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-019.jpg)
 
 In Höhlen wohnt der Drachen alte Brut,  
 Es stürzt der Fels und über ihn die Flut!
