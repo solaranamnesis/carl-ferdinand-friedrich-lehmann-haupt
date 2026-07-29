@@ -141,9 +141,9 @@ Daß der Durchbruch dereinst erheblich weiter aufwärts begonnen haben, der Tunn
 
 Die Tatsache aber, daß es sich hier um einen von einem Tigrisarm durchflossenen Tunnel, nicht um eine Quellgrotte handelte, war Salmanassar 3. bekannt. Denn zu eben dem Regierungsjahre, an dem er die Stätte besuchte und seine Inschriften dort anbrachte, berichten seine in Assyrien niedergeschriebenen Annalen, er sei an der Quelle des Tigris, am Ausgang seines Tunnels gewesen. Das bisher nicht richtig verstandene assyrische Wort für Tunnel, nakâbu lebt noch heute in dem Namen Ngûb eines aus assyrischer Zeit stammenden Tunnels fort, der zur Ableitung des Wassers des großen Zab nach der assyrischen Hauptstadt Kalach von Salmanassars 3. Vater angelegt und somit bereits zu den Zeiten der Semiramis bestehend, später von Assarhaddon (681 bis 668 v. Chr.) umgebaut wurde. Und dieselbe Bezeichnung für den Tunnel findet sich in der althebräischen Inschrift, die in unsern Tagen an dem zum Siloah-Teich führenden Durchstich aus König Hiskias Zeiten entdeckt worden ist. Dieser Tigristunnel spielt auch in den teils richtigen, teils verfehlten Anschauungen, die wir bei den klassischen Autoren über den Oberlauf des Tigris finden, eine wesentliche Rolle.
 
-[Assyrische Krieger in bergigem Gelände.]()
+[Assyrische Krieger in bergigem Gelände.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-020.jpg)
 
-[Kampf zwischen Assyrern und Urartäern. (Palasttore von Balawat).]()
+[Kampf zwischen Assyrern und Urartäern. (Palasttore von Balawat).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-021.jpg)
 
 Der Grund, warum der Schwiegervater der Semiramis wider besseres Wissen den Ausgang des Tunnels zur Tigrisquelle stempelt, ist leicht gefunden. Salmanassar 3. war im Norden und Nordwesten trotz mehrfacher Siege nichts weniger als erfolgreich gewesen. Das Gebiet um die eigentliche, westlicher belegene Tigrisquelle, die er noch im siebenten Regierungsjahre hatte besuchen können, war inzwischen den Assyrern im Kampfe mit den Urartäern verloren gegangen, und so mußte der weit östlichere Tigristunnel-Ausgang an ihre Stelle treten. ---
 
@@ -151,34 +151,34 @@ Die schwierigen Gebirgsmärsche, die die Assyrer vom Tigristunnel zum Euphrat un
 
 Durch die Torbeschläge von Balawat, die uns Assyrer und Urartäer im Handgemenge zeigen, lernen wir die Bewaffnung der letzteren kennen, --- nur Speer und Wurfspieß, im Gegensatz zu den mit Schwert und Bogen ausgestatteten Assyrern, aber in Übereinstimmung mit Xenophons späteren Schilderungen dieses Bergvolkes der Chalder, die er fälschlich mit dem Namen der südbabylonischen Chaldäer bezeichnet. Und ferner beobachten wir, daß auf urartäischer Seite zwei verschiedene Rassen, eine hochgewachsene, den Assyrern ebenbürtige, und eine wesentlich kleinere kämpfen (Abb. S. 30).
 
-[Opfer vor dem Königsbild und den Feldzeichen (Palasttore von Balawat).]()
+[Opfer vor dem Königsbild und den Feldzeichen (Palasttore von Balawat).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-022.jpg)
 
 Das Feldzeichen --- das schon die Babylonier der ältesten Zeit verwendeten --- wurde auf diesen Kriegszügen mitgeführt: auch den Assyrern galt die Fahne als Symbol und Vertreter des Herrschers, bei dessen Bilde sie aufgepflanzt wird, und des Gottes, für den dieser und sie kämpften. Vor dem Königsbild und dem Feldzeichen werden die Opfer dargebracht.
 
 Wie dann Salmanassar 3. die urartäische Hauptstadt Arzaskun berennt und schließlich erstürmt, können uns die Reliefs aus dem Palaste seines Vaters veranschaulichen. Wir sehen die Belagerungsmaschine, den Widder, in Tätigkeit, deren Ansturm die Steine der Stadtmauer weichen müssen, bis eine Bresche von genügender Größe erzielt ist und der Sturm beginnen kann.
 
-[Belagerungsmaschine.]()
+[Belagerungsmaschine.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-023.jpg)
 
 Die Gefangenen und die Beute werden hinweggeführt. Große Schwierigkeiten bereitet der Transport eines riesigen Tongefässes, das mit vollem Recht als den Urartäern eigentümlich von Salmanassar dargestellt wird. Denn genau solche riesigen Krüge fanden sich bei unseren Ausgrabungen in den Magazinen der letzten Residenz der Chalderkönige --- der um 600 v. Chr. zerstörten Felsenburg Toprakkaleh bei Van.
 
 Auch reichliche Vorräte an Eisen, in dessen Bearbeitung die Chalder die Lehrmeister der Assyrer wie der Griechen geworden sind, werden damals wie später in den Hauptstädten aufgespeichert und von den Assyrern als gute Beute mitgeführt worden sein. Mehr als 600 eiserne Geräte und Waffen --- wiederum nur Lanzen und Pfeilspitzen, keine Schwerter --- traten bei unseren Ausgrabungen auf Toprakkaleh zutage. Daneben werden --- ganz wie später --- der Palast des Herrschers und der Tempel des Gottes Chaldis schön ausgeführte Bronzearbeiten geliefert haben, wie denn bronzene Weiheschilde zum Bestande eines solchen Tempels gehörten (Abb. S. 34 oben). Von einem Herrscher-oder Götterthron aus Toprakkaleh haben sich zahlreiche Bestandteile erhalten, so der geflügelte Stier, der eine der Stangen des Baldachins trug. Der Kranz aus umgeklappten Blättern als Ornament (Abb. S. 34 unten) ist dem Throne mit einem herrlichen, ebendort von uns geborgenen, jetzt im Hamburger Museum für Kunst und Gewerbe befindlichen Kandelaber gemeinsam, auf dessen in Bocksklauen auslaufenden Beinen kleine Keruben assyrischer Bildung ruhten. ---
 
-[Transport eines urartäischen Tonkruges durch die Assyrer.]()
+[Transport eines urartäischen Tonkruges durch die Assyrer.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-024.jpg)
 
-[Urartäischer Tempel mit bronzenen Weiheschilden, von Assyrern erstürmt.]()
+[Urartäischer Tempel mit bronzenen Weiheschilden, von Assyrern erstürmt.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-025.jpg)
 
-[Wuchtiger bronzener Thronfuß (ca. 2/5), ausgegraben auf Toprakkaleh bei Van.]()
+[Wuchtiger bronzener Thronfuß (ca. 2/5), ausgegraben auf Toprakkaleh bei Van.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-026.jpg)
 
 Trotz mancher Erfolge war doch all dieser Kraftaufwand Salmanassars 3. vergeblich. Die Macht der Urartäer blieb im Wachsen, und Salmanassars Angriffe hatten nur den Erfolg, daß ihr Reich in der heutigen Stadt Van am gleichnamigen See ihren geeigneten Mittelpunkt fand. Schon Sardur, der Nachfolger von Salmanassars urartäischem Gegner Aram, legte am Fuße der Felsenburg von Van ein Kastell an, das Angriffen von Westen, über den See her, zu trotzen bestimmt war, und dessen Vorgelände durch Quellen, die unter seinem Gemäuer hervortreten, unter Wasser gesetzt werden konnte. Sardurs Sohn und Nachfolger Ispuinis hat die Verlegung der Residenz nach Van angebahnt, sein Sohn und Mitregent Menuas, der bedeutendste der Herrscher von Ararat, sie durchgeführt. Mit ihnen hatte zunächst Samsi-Adad, der Gemahl der Semiramis (Abb. S. 36), später ihr Sohn Adadnirari zu kämpfen.
 
-[König Sardurs Kastell am Fuße der Felsenburg von Van.]()
+[König Sardurs Kastell am Fuße der Felsenburg von Van.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-027.jpg)
 
-[König Samsi-Adad, der Gemahl der Semiramis.]()
+[König Samsi-Adad, der Gemahl der Semiramis.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-028.jpg)
 
 Van, die Semiramisstadt, wie sie noch heute
 bei den Armeniern heißt, liegt, von wohlbewässerten
 
-[Der höchste, westlichste Teil des Vanfelsens, der „Semiramis-Burg,“ mit den türkischen Befestigungen. (Zeichnung von F. Frohse).]()
+[Der höchste, westlichste Teil des Vanfelsens, der „Semiramis-Burg,“ mit den türkischen Befestigungen. (Zeichnung von F. Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-029.jpg)
 
 Gärten umgeben, in einer fruchtbaren Ebene. Aus ihr erhebt sich nahe dem Ufer des Sees und für den, der sich der Stadt von Osten nähert, weithin sichtbar, ein isolierter Kalksteinrücken, der heute die türkische Zitadelle der Gouvernements-Hauptstadt trägt.
 
@@ -192,17 +192,17 @@ Vom Fuße des Vanfelsens setzt uns das Fernobjektiv in den Stand, eine anderthal
 
 Um in der Ebene, möglichst im Schutze des Vanfelsens, eine städtische Ansiedlung zu schaffen, mußte, da das Wasser des Seees untrinkbar ist, eine Wasserleitung angelegt werden, der Semiramiskanal, der --- ein Wunder der Wasserbaukunst --- noch heute funktioniert und einem großen Teil der Ebene von Van Leben und Fruchtbarkeit spendet.
 
-[Die Argistis-Kammern auf der Semiramis-Burg.]()
+[Die Argistis-Kammern auf der Semiramis-Burg.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-030.jpg)
 
-[Urartäische Anlage im lebendigen Felsen auf dem Vanfelsen. (Zeichnung von Franz Frohse).]()
+[Urartäische Anlage im lebendigen Felsen auf dem Vanfelsen. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-031.jpg)
 
 Daß er vom Könige Menuas herrührt, also wirklich aus der Zeit der Semiramis, wenn auch keineswegs von ihr herrührt, besagen zahlreiche Inschriften an dem cyklopischen Gemäuer des erhöhten Bettes, in dem dieser 70 km lange Aquädukt vielfach an den Rändern tief einschneidender Schluchten entlang- und herumgeführt werden mußte. Sehr merkwürdig ist die Stelle, wo der Kanal in hölzernem, im Laufe der Jahrhunderte wohl mehrfach erneuertem Bette über den Fluß Choschab, der von Osten her in den Vansee fällt, hinübergeleitet wird (Abb. S. 42).
 
-[Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs Menuas. (Zeichnung von Lucy du Bois-Reymond).]()
+[Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs Menuas. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-032.jpg)
 
 Im oberen Choschab-Thal erhebt sich eine malerische Feste, die heute die Ruinen eines Kurdenschlosses trägt, das 360 Zimmer enthalten und dessen Besitzer über 360 Dörfer geboten haben soll, --- einer von vielen Belegen für das Fortleben der für unsere Zeit und Kreisteilung maßgebenden altbabylonischen Sechziger-Rechnung im Volksmunde des heutigen Orients. An dieser ihrer Feste vorbei gelangten Menuas und Argistis in die fruchtbaren Gebiete westlich des Urmiasees, um die sich die Kämpfe zwischen Urartu und Assyrien zu Semiramis Zeiten hauptsächlich drehten. Die gegebene urartäische Zwingburg für diese Gegend war die „Taubenfeste“ die --- ein orientalisches Vineta --- die Stätte einer in den See versunkenen Stadt bezeichnen soll, und die im Mittelalter tatsächlich die Schatzkammer des mächtigen Mongolenkaisers Hulagu-Chan gewesen ist.
 
-[Überführung des „Semiramis-Kanals“ über den Choschab. (Zeichnung von Franz Frohse).]()
+[Überführung des „Semiramis-Kanals“ über den Choschab. (Zeichnung von Franz Frohse).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-033.jpg)
 
 Bis sie aber dortin gelangten, waren auf vielfach schwierigen Märschen die Gebiete diesseits der persisch-türkischen Grenze zu durchkreuzen und schließlich die Grenzgebirge selbst zu übersteigen. Auf der Höhe des Passes, der von Osten in das südliche Seegebiet führt, steht noch heute, so wie sie vor 2700 Jahren von Ispuinis und Menuas errichtet wurde, eine Stele, Kel-i-schin, „der grüne Pfeiler,“ wie ihn die Kurden nennen; sie hat dem Berge und dem Passe selbst den Namen gegeben. Von der älteren und jüngeren Sage umsponnen --- die Zuweisung an die Semiramis fehlt auch hier nicht ---, gibt dieser Pfeiler mit seiner zweisprachigen urartäisch-assyrischen Inschrift noch heute Kunde aus den Zeiten der Semiramis. Eine unheimliche Stätte, im Winter durch gewaltige, plötzlich entstehende Schneewehen gefährdet, im Sommer berüchtigt durch die Überfälle der in diesen Grenzgebieten besonders zügellosen, räuberischen Kurden, hat die Stele kaum einen Besucher gesehen, der nicht bei einem auch nur flüchtigen Aufenthalte hier mit Naturgewalten oder den Bewohnern der Nachbarschaft ein ernsteres Abenteuer zu bestehen gehabt hätte. Ich darf bei den eigenen Erlebnissen und Ergebnissen unserer Expedition hier nicht verweilen, sondern muß auf deren Schilderung im achten Kapitel meines Reisewerkes verweisen.
 
