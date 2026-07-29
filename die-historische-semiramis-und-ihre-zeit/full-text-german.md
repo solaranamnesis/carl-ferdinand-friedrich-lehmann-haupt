@@ -1,6 +1,6 @@
 # Die historische Semiramis und ihre Zeit.
 
-### Vortrag gehalten in der Deutschen Orient-Gesellschaft zu Berlin am 6. Februar 1910
+### Vortrag gehalten in der Deutschen Orient-Gesellschaft zu Berlin am 6. Februar 1910.
 
 ## Von C. F. Lehmann-Haupt.
 
