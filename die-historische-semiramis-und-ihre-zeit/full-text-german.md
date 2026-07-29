@@ -1,6 +1,16 @@
 # Die historische Semiramis und ihre Zeit.
 
-## Von C. F. Lehmann.
+### Vortrag gehalten in der Deutschen Orient-Gesellschaft zu Berlin am 6. Februar 1910
+
+## Von C. F. Lehmann-Haupt.
+
+#### Mit 50 Abbildungen.
+
+## Tübingen.
+
+### Verlag von J. C. B. Mohr (Paul Siebeck).
+
+## 1910.
 
 ---
 
