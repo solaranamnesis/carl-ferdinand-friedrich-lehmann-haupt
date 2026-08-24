@@ -13,7 +13,7 @@ English - PDF
 
 English - Plain Text  
 English - PDF  
-[German - Plain Text](die-historische-semiramis-und-ihre-zeit/full-text-german.md) | German - (GFM) Plain Text  
+[German - Plain Text](die-historische-semiramis-und-ihre-zeit/full-text-german.md) | [German - (GFM) Plain Text](die-historische-semiramis-und-ihre-zeit/full-text-german-gfm.md)  
 German - PDF | Fraktur | Schwabacher | Custom01  
 
 ## Materialien zur älteren geschichte Armeniens und Mesopotamiens.
