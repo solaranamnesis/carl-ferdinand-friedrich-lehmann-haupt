@@ -14,7 +14,7 @@ English - PDF
 English - Plain Text  
 English - PDF  
 [German - Plain Text](die-historische-semiramis-und-ihre-zeit/full-text-german.md) | [German - (GFM) Plain Text](die-historische-semiramis-und-ihre-zeit/full-text-german-gfm.md)  
-German - PDF | Fraktur | Schwabacher | Custom01  
+[German - PDF](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german.pdf) | [Atkinson](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-atkinson.pdf) | [Baskerville](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-gfsbaskerville.pdf) | [Biolinum](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-biolinum.pdf) | Fraktur | Schwabacher | [Custom01](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-custom01.pdf) | [Custom02](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-custom02.pdf) | [Custom03](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-custom03.pdf) | [Custom04](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/lehmann-semiramis-zeit-1910-german-custom04.pdf)  
 
 ## Materialien zur älteren geschichte Armeniens und Mesopotamiens.
 
