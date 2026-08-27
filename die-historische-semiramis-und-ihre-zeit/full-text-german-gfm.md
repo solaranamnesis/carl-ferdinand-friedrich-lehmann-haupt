@@ -20,11 +20,9 @@ Trotz der sagenhaften Umhüllung, in der die Nachrichten über Ninos und Semiram
 
 Da das Perserreich den ganzen vorderen Orient umfasste, so ließ sich damit auch die Tatsache vereinigen, dass der Geburtsort der Semiramis ins westliche Syrien verlegt wurde: dort sei ihr, die einst --- von den Tauben,[^1] den heiligen Vögeln der Astarte wie der Aphrodite, genährt --- unter der Obhut eines Hirten aufgewachsen war und die dann als Gemahlin eines andern vom Könige Ninos zum Weibe begehrt wurde --- göttliche Verehrung zuteilgeworden.
 
-
 Aber auch der Gedanke, dass es sich um eine reine Sagengestalt, um eine historisch in keiner Weise greifbare Persönlichkeit handle, musste, ehe er noch Wurzel fassen konnte, aufgegeben werden.
 
 Die ersten epochemachenden englischen Entdeckungen im Zweistromlande erfolgten in den heute Nimrud genannten Ruinen der altassyrischen Residenzstadt Kalach, die --- etwas südlich von Ninive gelegen --- auch im Alten Testamente genannt wird. Schon ein Jahrzehnt nach dem Beginn der Ausgrabungen wurde dort eine auf mehreren Statuen des Gottes Nebo (Abb. S. 3) gleichlautend wiederholte Inschrift gefunden --- dem Gotte geweiht vom Statthalter von Kalach für das Leben Adadniraris (um 800 v. Chr.) und seiner „Palastfrau,“ die den mit Semiramis so gut wie völlig identischen Namen Schammuramat führte.[^2]
-
 
 Sie war also --- so musste man zunächst annehmen, die Gattin Adadniraris, wie denn in einem Briefe, den Goethe im „Westöstlichen Divan,“ wenn auch schwerlich in ganz richtiger Übersetzung, wiedergibt, der Schah von Persien zum Kaiser von Russland von der Zarin als von der „Frau des Palastes“ spricht. Schon die Erwähnung einer Frau in einer offiziellen Urkunde war an sich etwas höchst Außergewöhnliches. Zudem bezeichnet sie der Statthalter als seine Herrin, genau wie den König als seinen Herrn. So ergab sich, dass tatsächlich in Assyrien eine Herrscherin Semiramis gelebt hatte, von ungewöhnlicher Bedeutung und wohl geeignet zum Mittelpunkt eines Legendenkreises, dessen Entstehung im einzelnen man nachzugehen versuchen konnte. ---
 
@@ -50,7 +48,6 @@ Der vier Weltgegenden.“
 
 [Inschrift der Semiramis-Stele von Assur.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-005.jpg)
 
-
 Semiramis war also die Mutter Adadniraris 4., als dessen Palastfrau sie in der Inschrift auf der Nebostatue genannt wurde. Sie ist die einzige Frau, die in dieser Reihe von Denksteinen mit einer solchen Stele vertreten ist. Auch hat man sich nicht begnügt, von ihr etwa zu sprechen als von der Gemahlin Samsi-Adads, des Vaters Adadniraris, sondern das Verhältnis der königlichen Frau zu drei Assyrerkönigen wird besonders hervorgehoben. Den an dritter Stelle erscheinenden Namen Salmanassar trägt sowohl der Vater ihres Gemahls, Salmanassar 3., wie der Nachfolger des Sohnes, Salmanassar 4. Die diesem Namen vorausgehenden Keilschriftgruppen sind nicht völlig klar. Die Königin wird durch sie entweder als Großmutter oder Vormundin des jüngeren Salmannassar oder aber, und wohl wahrscheinlicher, als Schwiegertochter des älteren genannt sein.
 
 Wie dem immer sei: die zeitlichen Grenzen für unsere Betrachtung sind durch die Regierungen dieser beiden gleichnamigen Herrscher jedenfalls gegeben.
@@ -61,7 +58,6 @@ Und merkwürdigerweise hat sich auch in der Semiramis-Sage eine Hindeutung auf d
 
 [Salmanassar 3., der Schwiegervater der Semiramis.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-006.jpg)
 
-
 Dass kriegerischer Sinn und bedeutende Eroberungszüge der sagenhaften Vertreterin des kriegerischen Assyrerreiches zugeschrieben wurden, war an sich selbstverständlich. Nun aber trifft weiter zu, dass die Zeit, in der die geschichtliche Semiramis lebte, an kriegerischen Unternehmungen besonders reich war. Salmanassar 3. (860-826), ihr Schwiegervater, hat seine Waffen im Süden nach Babylonien, im Westen gegen Damaskus, Hamat und deren Verbündete, nicht minder auch nach Osten und Norden getragen, wie uns denn der bekannte Obelisk Salmanassars aus Kalach-Nimrud die Erfolge, die der Herrscher in allen Himmelsrichtungen errungen hatte, in den Tributen und Geschenken der unterworfenen und bekämpften Völker --- darunter dem des Jehu von Israel --- vor Augen führt. Sein Sohn aber, der Gemahl, und sein Enkel, der Sohn der Semiramis, haben es ihm nachgetan.
 
 Zwei Völkerschaften treten in dem sagenhaften Berichte bei Ktesias besonders hervor, im Osten die Meder, im Norden die damaligen Bewohner des nachmals als Armenien bezeichneten Gebietes.
@@ -71,8 +67,6 @@ Und darin klingen nicht minder geschichtliche Vorgänge aus den Zeiten der Semir
 Mit den Medern, dem ersten arischen Volk, das von Norden her im Osttigrislande erschien, ist zuerst der Schwiegervater der Schammuramat in feindliche Berührung gekommen; ebenso hat ihr Gemahl einen, ihr Sohn dagegen als König acht Feldzüge gegen sie richten müssen.
 
 Die Kämpfe mit den Bewohnern des späteren Armeniens wiederum sind ein der Sage von Ninos und Semiramis besonders fest und zäh anhaftender Zug; er begegnet uns noch in einem neuerdings auf einem Papyrus in Ägypten gefundenen Ninos-Roman wieder,[^5] der im übrigen die Personen und Motive der Sage gründlich umgestaltet. Namentlich ist aus Ninos ein tugend- und empfindsamer Jüngling, aus seiner Erwählten, die schlechtweg als „die Maid“ ohne Namensnennung bezeichnet wird, das Musterbild einer sittigen Jungfrau geworden. Trotzdem aber lässt der Dichter, der offenbar gar keine Vorstellung von den ungeheuren Schwierigkeiten hat, die ein Kriegszug von Assyrien aus gegen das armenische Bergland mit sich brachte, den Ninos mit seinen 150 Elefanten gegen Armenien ziehen. Ktesias aber lässt nicht nur --- eine im Grunde gewiss richtige Beobachtung --- die Semiramis das Steinmaterial zu den assyrischen Stelen den armenischen Gebirgen entnehmen, sondern er berichtet auch, dass Ninos, ehe er gegen die Meder zog, die Bewohner Armeniens und ihren König besiegt, dann aber diesem die Herrschaft großmütig belassen habe. Darin spiegelt sich in eigentümlicher, aber deutlicher Weise die geschichtliche Wahrheit wieder, dass von allen Völkern und Reichen Vorderasiens in der Tat nur ein zu den Zeiten der Semiramis im armenischen Berglande blühendes Reich den Assyrern nachhaltig widerstanden und ihnen gegenüber seine Selbständigkeit bis zu Ende aufrechterhalten hat.[^6]
-
-
 
 Das Quellgebiet der Ströme, die die Lebensader ihres Landes bildeten, musste Babyloniern und Assyrern von jeher bedeutsam und verlockend erscheinen, schon weil die wichtigste Erscheinung im Leben der Ströme und des Landes, das jährliche gewaltige Anschwellen der Wassermassen, durch die Schneeschmelze in den armenischen Gebirgen --- wie das auch Herodot betont --- veranlasst wurde. Die uralte Verehrung der Quellen und die Schwierigkeit des Vordringens zu ihnen gaben einen weiteren Anreiz zu kriegerischen Entdeckungszügen, die, schon bald nachdem Assyrien um die Mitte des zweiten vorchristlichen Jahrtausends sich von Babylonien unabhängig gemacht hatte, zum Teil mit bedeutendem Erfolge ins Werk gesetzt wurden.
 
@@ -138,7 +132,6 @@ Im Gegensatz zu Tiglatpileser 1., seinem einzigen erweislichen Vorgänger an die
 
 [An der Tigrisquelle (Palasttore von Balawat).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-016.jpg)
 
-
 Dieser Vorgang tritt uns auch im Bilde entgegen auf den Kupferbeschlägen, die die Tore des Palastes schmücken, den Salmanassar sich in der heute Balawat genannten, assyrischen Stadt errichtete.
 
 Auf den ersten Blick sieht man, dass es sich um eine von der bisher geschilderten gänzlich verschiedene Örtlichkeit, um eine aus dem Felsen, in einzelnen kleinen Quellhöhlungen, im übrigen aber frei und unmittelbar hervortretende Quelle handelt.
@@ -186,7 +179,6 @@ Auch reichliche Vorräte an Eisen, in dessen Bearbeitung die Chalder die Lehrmei
 
 [Wuchtiger bronzener Thronfuß (ca. 2/5), ausgegraben auf Toprakkaleh bei Van.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-026.jpg)
 
-
 Trotz mancher Erfolge war doch all dieser Kraftaufwand Salmanassars 3. vergeblich. Die Macht der Urartäer blieb im Wachsen, und Salmanassars Angriffe hatten nur den Erfolg, dass ihr Reich in der heutigen Stadt Van am gleichnamigen See ihren geeigneten Mittelpunkt fand. Schon Sardur, der Nachfolger von Salmanassars urartäischem Gegner Aram, legte am Fuße der Felsenburg von Van ein Kastell an, das Angriffen von Westen, über den See her, zu trotzen bestimmt war, und dessen Vorgelände durch Quellen, die unter seinem Gemäuer hervortreten, unter Wasser gesetzt werden konnte. Sardurs Sohn und Nachfolger Ispuinis hat die Verlegung der Residenz nach Van angebahnt, sein Sohn und Mitregent Menuas, der bedeutendste der Herrscher von Ararat, sie durchgeführt. Mit ihnen hatte zunächst Samsi-Adad, der Gemahl der Semiramis (Abb. S. 36), später ihr Sohn Adadnirari zu kämpfen.
 
 [König Sardurs Kastell am Fuße der Felsenburg von Van.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-027.jpg)
@@ -208,7 +200,6 @@ Die Kammern mit den so geschilderten Inschriften, die außen an den geglätteten
 
 Vom Fuße des Vanfelsens setzt uns das Fernobjektiv in den Stand, eine anderthalb Stunden entfernte Stätte, Dorf und Felsenburg Aralesk, wo nach der Sage Semiramis ihren Geliebten Ara mit --- sehr anschaulich geschilderten --- Küssen vom Tode zu erwecken suchte, aufzunehmen.[^9]
 
-
 Um in der Ebene, möglichst im Schutze des Vanfelsens, eine städtische Ansiedlung zu schaffen, musste, da das Wasser des Sees untrinkbar ist, eine Wasserleitung angelegt werden, der Semiramiskanal, der --- ein Wunder der Wasserbaukunst --- noch heute funktioniert und einem großen Teil der Ebene von Van Leben und Fruchtbarkeit spendet.
 
 [Die Argistis-Kammern auf der Semiramis-Burg.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-030.jpg)
@@ -218,7 +209,6 @@ Um in der Ebene, möglichst im Schutze des Vanfelsens, eine städtische Ansiedlu
 Dass er vom Könige Menuas herrührt, also wirklich aus der Zeit der Semiramis, wenn auch keineswegs von ihr herrührt, besagen zahlreiche Inschriften an dem cyklopischen Gemäuer des erhöhten Bettes, in dem dieser 70 km lange Aquädukt vielfach an den Rändern tief einschneidender Schluchten entlang- und herumgeführt werden musste. Sehr merkwürdig ist die Stelle, wo der Kanal in hölzernem, im Laufe der Jahrhunderte wohl mehrfach erneuertem Bette über den Fluss Choschab, der von Osten her in den Vansee fällt, hinübergeleitet wird (Abb. S. 42).[^10]
 
 [Stützmauer des „Semiramiskanals“ mit Keilinschrift des Königs Menuas. (Zeichnung von Lucy du Bois-Reymond).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-032.jpg)
-
 
 Im oberen Choschab-Thal erhebt sich eine malerische Feste, die heute die Ruinen eines Kurdenschlosses trägt, das 360 Zimmer enthalten und dessen Besitzer über 360 Dörfer geboten haben soll, --- einer von vielen Belegen für das Fortleben der für unsere Zeit und Kreisteilung maßgebenden altbabylonischen Sechziger-Rechnung im Volksmunde des heutigen Orients. An dieser ihrer Feste vorbei gelangten Menuas und Argistis in die fruchtbaren Gebiete westlich des Urmiasees, um die sich die Kämpfe zwischen Urartu und Assyrien zu Semiramis Zeiten hauptsächlich drehten. Die gegebene urartäische Zwingburg für diese Gegend war die „Taubenfeste“ die --- ein orientalisches Vineta --- die Stätte einer in den See versunkenen Stadt bezeichnen soll, und die im Mittelalter tatsächlich die Schatzkammer des mächtigen Mongolenkaisers Hulagu-Chan gewesen ist.
 
@@ -230,13 +220,11 @@ Bis sie aber dorthin gelangten, waren auf vielfach schwierigen Märschen die Geb
 
 Mit Hilfe der persischen Kurden aus dem Dorfe Haek, bei denen wir zu Gaste waren, gelang es uns während eines zweimaligen Besuches, die bisher nur aus schnell gefertigten Abklatschen bekannten Inschriften des Kelischin im Original zu prüfen (Abb. S. 46).[^11]
 
-
 Die Stele ist gleich andern urartäischen Schriftdenkmälern dieser Art mittels eines Zapfens in einen über den Boden hinausragenden quadratischen wuchtigen Sockel eingelassen (Abb. S. 45). Ganz das gleiche ist in Assur der Fall, und da die dortige Stelenreihe weit über die urartäische Zeit zurückgeht, so erkennen wir, dass die Urartäer mit der Schrift (S. 12) auch die Form der Urkunden in wesentlichen Zügen von den Assyrern übernommen haben.
 
 [Kel-i-giaur: verstümmelte Stele mit zweisprachiger, urartäischassyrischer Inschrift, auf Sockel in ihrer ursprünglichen Stellung unweit des Kelischin. (Zeichnung von Helfriede Haupt).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-035.jpg)
 
 Die Kelischin-Stele war das letzte Monument, das Schulz, der Pfadfinder auf diesem Forschungsgebiete, besuchte; wenige Tage später fiel er von der Hand eines räuberischen Kurdenhäuptlings.[^12]
-
 
 [Die Expedition an der Kelischin-Stele.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-036.jpg)
 
@@ -260,14 +248,11 @@ Zu Lande bildet heutzutage im nordwestlichen Persien das Dromedar das Haupttrans
 
 [Verfolgung eines flüchtigen Kamelreiters.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-041.jpg)
 
-
 Solange der Sohn der Semiramis, größtenteils unter der Leitung seiner Mutter, regierte, hielten sich Assur und Urartu in diesen Gebieten die Wage, wenngleich ein allmähliches Vordringen der Urartäer nicht zu verkennen ist und auch die Meder trotz allem allmählich an Boden gewannen.
 
 Das wichtigste Erfordernis für die Bildung der Sage, eine nachdrückliche und achtunggebietende kriegerische Betätigung der Assyrer in der Zeit der geschichtlichen Semiramis ist somit vollauf erfüllt. Dass damals eine Frau die Geschicke des Reiches lenkte, musste überall auffällig erscheinen und zur Legendenbildung auffordern. In verstärktem Maße war das der Fall, wenn etwa Semiramis gleich anderen Herrscherinnen des Altertums, so der Schwestergemahlin Ptolemaios' 4. von Ägypten, ihren Gemahl bei seinen zahlreichen Kriegszügen ins Lager begleitete und durch ihre Gegenwart den Kampfeseifer der Tuppen hob.[^14]
 
-
 Den entscheidenden Wegweiser für die Entstehung der Semiramis-Legende aber gibt der Umstand, dass Semiramis und ihr lediglich nach Niniveh benannter Gemahl in der Sage als erste Herrscher Assyriens gelten, während in Wahrheit zu ihrer Zeit das assyrische Königtum bereits auf ein mindestens achthundertjähriges Bestehen zurückblicken konnte. Eine solche Vorstellung kann unmöglich auf assyrischem oder babylonischem Boden entstanden sein, sondern nur bei einem Fremdvolke. Wenn ein Fremdvolk von primitiven Sitten zur Zeit, da die Schammuramat an der Leitung der Geschicke Assyriens so bedeutsam beteiligt war, zum ersten Male mit den kriegerischen Assyrern in nähere Berührung kam und von dem Reichtum und der Pracht seiner Städte hörte, so erklärt es sich vollauf, dass diese Herrscherin als Begründerin der assyrischen Macht und Herrlichkeit betrachtet wurde. Das trifft in besonderem Maße zu für die Meder, deren erste nachdrücklichere Zusammenstöße mit den Assyrern, wie wir hörten, gerade unter Adadniraris Regierung fielen, d. h. in die Zeit, da in Wahrheit Semiramis, seine Mutter, die Geschicke des Reiches lenkte. Und medisch-persische Volksgesänge und Legenden waren es, wie betont, denen Ktesias seine Kunde der älteren Zeit vorwiegend entnahm.[^15]
-
 
 War aber aus der Lieblingsgemahlin eines Assyrerkönigs dergestalt die Reichsgründerin geworden, so ergab sich damit die weitere sagenhafte Entwicklung von selbst.
 
@@ -279,15 +264,11 @@ Die Lenkerin und Begründerin des kriegerischen Reiches verschmolz mit der Gött
 
 Die Istar war aber gleichzeitig Kriegs- und Liebesgöttin.[^16] Im babylonischen Nationalepos weist dessen Held Gilgamisch ihre Werbungen ab und wirft ihr dabei ihre Liebschaften und die Behandlung, die sie ihren Liebhabern hat angedeihen lassen, vor: „Tammuz, dem Buhlen deiner Jugend, Jahr für Jahr bestimmtest du ihm Weinen. Als du den bunten Hirtenknaben-Vogel liebtest, schlugst du ihn und zerbracht seinen Flügel. Im Walde steht er und ruft: mein Flügel!“ ... „Als du den Hirten der Herde liebtest, der dir beständig Salz hinschüttete, dir täglich Zicklein schlachtete, schlugst du ihn und verwandeltest ihn in einen wilden Hund. Es verjagen ihn seine eigenen Hirtenknaben, und seine Hunde beißen sein Fell.“ Ebenso schlimm ist es dem Ischullanu ergangen, „dem Gartner deines Vaters, der dir beständig Blumensträuße zuträgt, täglich deinen Tisch strahlen macht,“ und Gilgamisch schließt: „Auch mich willst du, mich lieben und jenen gleich machen.“ So wären aus der bloßen Verschmelzung mit der Istar auch die Liebesabenteuer, die der Semiramis in der Sage zugeschrieben werden, erklärlich, selbst wenn die geschichtliche Semiramis dazu etwa keinen Anlass bot.[^17]
 
-
-
 Andrerseits ist es ein im alten Orient seit den ältesten babylonischen Zeiten immer wiederkehrender Zug, dass der Begründer einer Dynastie --- man denke an Cyrus --- im Verborgenen, von einem Hirten oder Gärtner erzogen, aufwächst; so ist es nur natürlich, dass dieses ständige Merkmal der Königsberufungssage nebst anderen verwandten Elementen auch der mythischen Semiramis anhaftet.[^18] ---
-
 
 Das Quellgebiet des Euphrat und Tigris geriet um 600 v. Chr. unter medische Herrschaft, und gleichzeitig wanderten von Westen her die heutigen Armenier, die Urartäer unterwerfend und verdrängend, ein, um alsbald die medische mit der persischen Oberherrschaft zu vertauschen.
 
 Mit den Iraniern wird sich dann die Sage von der Semiramis auch nach Armenien ausgebreitet haben. Und wenn kurz vor Christi Geburt der Kleinasiate Strabo in seiner Geographie betont, dass außerhalb des Zweistromlandes in vielen Gebieten Asiens Bauten der Semiramis gezeigt werden, so wird er dabei, und nicht an letzter Stelle, auch Armenien im Auge gehabt haben.[^19]
-
 
 Aber, von anderen Bedenken abgesehen, die Armenier wissen im übrigen sehr gut, dass ihre nunmehrige Heimat einst gegen die Assyrer hatte verteidigt werden müssen, und sie rechnen den ersten Urartäerkönig den Gegner Salmanassars, Aram, unter ihre eigenen Nationalhelden.
 
@@ -295,11 +276,9 @@ Sollte es da lediglich der werbenden Kraft und der Wucht, die gerade der Semiram
 
 [Henkelfigur: geflügelte Sonnenscheibe mit chaldischer Göttin (Rückseite).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-044.jpg)
 
-
 Und in der Tat, die Frau muss bei den Urartäern eine sehr bedeutende Rolle gespielt haben. Sonst würde nicht in der geflügelten Sonnenscheibe, die überall --- bei den Ägyptern, von denen sie ausgegangen ist, bei den Assyrern und bei den Persern --- stets das Bild der obersten Gottheit trägt, bei den Urartäern eine Frau erscheinen. So wird die geflügelte Sonnenscheibe dargestellt in den Henkelfiguren großer Bronzegefäße, die mehrfach in Armenien, aber auch in deutlicher Nachahmung dieser urartäischen Vorbilder in Olympia und an anderen Stätten älterer griechischer Kultur zutage getreten sind. Die Haartracht der Göttin gleicht der der heutigen Georgierinnen, und die Georgier haben auch aus anderen Gründen als Reste jener kleinasiatischen Urbevölkerung zu gelten, der die Urartäer angehören.[^21]
 
 [Chaldische Göttin in geflügelter Sonnenscheibe (Vorderansicht).](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-045.jpg)
-
 
 Und eine urartäische Königin mit ihrer Dienerin stellt nach der neuesten und besten Deutung jenes Goldplättchen in getriebener Arbeit dar, das --- nicht viel kleiner als ein Fünfmarkstück --- durch unsere Ausgrabungen auf dem Königssitze Toprakkaleh bei Van in einem jener bereits besprochenen riesigen Krüge des Magazins gefunden worden ist. Als Kunstwerk an sich, als Darstellung des urartäischen Frauentypus und als die älteste aller Medaillen, die auf uns gekommen sind, darf diese Goldplatte ein besonderes Interesse beanspruchen. Sie ist mit der Mehrzahl der übrigen Ergebnisse unserer Ausgrabungen kürzlich in den Besitz unserer Königlichen Museen übergegangen.
 
@@ -311,7 +290,6 @@ So wäre die Entstehung der Semiramis-Sage bei den Medern und ihr Fortleben bei 
 
 Aber eine Frage harrt noch der Aufklärung. Woher stammte die Semiramis? Auch sie lässt sich befriedigend beantworten: Sie war eine Babylonierin. Herodot gedenkt ihrer als einer babylonischen Königin in einer nüchternen, von sagenhaften Beimischungen völlig freien Weise, wiewohl ihm erweislich auch Elemente der Semiramis-Sage zu Ohren gekommen sind. Er bestimmt ihre Lebenszeit ungefähr richtig, und schreibt ihr zu, was jedem babylonischen Herrscher, der es ernst mit seinen Regierungspflichten nahm, oblag: erfolgreiche Bemühungen um die Regulierung der Bewässerung. Ebenso hat der babylonische Priester Berossos,[^22] der --- ein Zeitgenosse Alexanders des Großen und seiner Nachfolger --- auf Grund seiner Kunde der heimischen Keilschriftdenkmäler eine babylonische Geschichte in griechischer Sprache schrieb, ihrer in seiner babylonischen Geschichte in der Reihe der Beherrscher Babyloniens gedacht und dabei gegen die von den Griechen unter Ktesias' Führung verbreiteten Sagen, soweit sie Babylonien betrafen, energisch Front gemacht.
 
-
 Weit deutlicher aber ergibt sich die babylonische Herkunft der Semiramis aus der Tatsache, dass auf ihre Veranlassung der babylonische Gott Nebo, der bis dahin in Assyrien ganz unbekannt war, dort eingeführt wurde. In einer chronikartigen assyrischen Liste heißt es zum Jahre 787 v. Chr.: „Nebo zieht in den neuen Tempel ein.“ Und zwar sollte er als oberster Gott gelten; denn die „für ihr und ihres Sohnes Leben“ gesetzte Inschrift der Nebo-Statue (oben S. 2f.) schließt:
 
 „Wer immer du später sein mögest, auf Nebo verlasse dich, auf einen andern Gott vertraue nicht.“
@@ -322,12 +300,9 @@ Schon Salmanassar 3. hatte in babylonische Thronwirren mit ordnender Hand erfolg
 
 Selbst dann aber --- und noch mehr, wenn sie keine Beziehungen zum babylonischen Herrscherhause hatte --- musste der Vereinigung der beiden Reiche eine staatsrechtliche Grundlage gegeben werden.[^23]
 
-
 Babylonischer König konnte von Rechts wegen nur sein, wer zum Neujahrsfest im Nisan die Hände des Gottes Bêl-Marduk in Babylon erfasst hatte und diese Zeremonie alljährlich wiederholte. So sind die späteren Assyrerkönige, als erster Pulu (Phul), --- der als assyrischer Usurpator den Thronnamen Tiglatpileser (745-727) annahm, während er als babylonischer König seinen ursprünglichen Namen beibehielt, und der daher mit beiden Namen im Alten Testament auftritt ---, tatsächlich verfahren. Aber sollte ein einheitlich assyrisch-babylonisches Reich begründet werden, in dem der Nachdruck auf Assyrien lag, und der Assyrerkönig der demütigenden und lästigen Verpflichtung überhoben sein, alljährlich zu Neujahr nach Babylon zu pilgern, so war die Einführung eines für das babylonische Staatsrecht maßgebenden Kultus das zweckdienliche Auskunftsmittel. An Bêl-Marduk selbst, den babylonischen Hauptgott, durfte man nicht denken; den älteren Bel in Assyrien einführen, hieß den eigenen Hauptgott, Bel-Assur, entthronen und das Ziel der Maßregel verfehlen. Aber Nebo --- nach älterer, auch in der Semiramis-Inschrift der Nebo-Statue vertretener Auffassung der Bruder, nach späterer der Sohn des Marduk --- wurde aus seinem Haupttempel in Borsippa, heute der Trümmerstätte Birs-Nimrud, alljährlich zum Neujahrsfest nach Babylon gebracht und war so gegenwärtig bei und mittelbar beteiligt an der Krönungszeremonie des Handerfassens und ihrer jährlichen Wiederholung. So bot die Einführung seines Kultes nach Assyrien den gegebenen und wirksamen Ausweg. Der Haupttempel des Nebo in Borsippa trug ebenso wie seine Kultkapelle im Tempel Esaggil den Namen Ezida: so wurde zum Zeichen der engen inneren Zusammengehörigkeit auch der neue Tempel in Kalach benannt.[^24]
 
-
 Zu alledem fügt es sich auf beste, dass in der neuen Inschrift von Assur (S. 7) der hinter Adadnirari genannte König Salmanassar nicht wie die beiden anderen den Titel „König von Assyrien, König des Alls,“ sondern den uralten Titel der Babylonierkönige, „König der vier Weltgegenden,“ und nur diesen, erhält. Es ist klar, dass damit der betreffende Salmanassar als Beherrscher auch Babyloniens nachdrücklich bezeichnet werden soll. War Salmanassar 3. damit gemeint, so sollte der Schwiegervater der Semiramis als der große Eroberer gekennzeichnet werden, der auch in die babylonischen Thronwirren nachdrücklich ordnend eingegriffen und so die neue Lage der Dinge vorbereitet hatte. Wäre Salmanassar 4. darunter zu verstehen, so würde der Titel „König der vier Weltgegenden“ besagen, dass der Enkel der Semiramis, der Sohn Adadniraris, offenbar noch zu Lebzeiten seines Vaters und seiner Großmutter zum Unterkönig von Babylonien ernannt worden war; oder aber, man hätte anzunehmen, dass ihm überhaupt eine Mitregentschaft übertragen worden sei und man dabei --- in diesem ersten Falle der rechtmäßigen Vereinigung beider Reiche auf Grund des Nebo-Kultes --- das babylonische Königtum in den Vordergrund treten ließ.[^25]
-
 
 Semiramis war sich gewiss von vornherein im klaren darüber gewesen, dass schließlich der Gewinn dieser von ihr geförderten religiösstaatsrechtlichen Verschmelzung den Babyloniern als den in jeglicher Kultur Höherstehenden zufallen würde. So betrachtet stellt sich, ganz entgegen den Absichten der Assyrer, die Einführung des Nebo-Dienstes als eine friedliche babylonische Eroberung dar. In der diplomatischen Umgehung der Anstöße, der Schonung der nationalen Empfindlichkeit wie der Babylonier so der Assyrer, der scheinbaren Anerkennung der assyrischen Obmacht verrät sich deutlich das Wirken einer klugen und umsichtigen, zur Herrscherin geschaffenen Frau. ---
 
@@ -337,14 +312,11 @@ Gerade die hängenden Gärten, die in der landläufigen Vorstellung am engsten m
 
 [Assyrische Darstellung einer Anlage nach Art der hängenden Gärten. (?)](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-047.jpg)
 
-
 Auf die Meder weist noch ein andrer Zug dieser Sage. Nach Ktesias soll Semiramis bei ihren Feldzügen im Osten eine Kleidung erfunden haben, die unmöglich machte, zu unterscheiden, ob der Träger ein Mann oder eine Frau sei. Diese Tracht sei so kleidsam gewesen, dass später die Meder und nach ihnen die Perser sie angenommen hätten. Die Hose, als deren Erfinderin somit den Griechen die Semiramis galt, ist tatsächlich zuerst bei den Medern nachweisbar.[^27]
-
 
 Erst die spätere Weiterentwicklung der Sage hat dann auch die hängenden Gärten der mythischen Semiramis zugesprochen. Ihre Fundamente werden in Babylon auf dem Gelände des großen Palastes Nebukadnezars, ihres Erbauers, oder in deren Nachbarschaft zu finden sein.[^28]
 
 [Zwei Keruben: Torhüterskulpturen, in den Ruinen von Kalach-Nimrud in situ aufgenommen.](https://cdn.solaranamnesis.com/LehmannHaupt/SemiramisZeit/Figure-048.jpg)
-
 
 In Kalach hingegen besteht noch heute eine Stätte, an der das Andenken der historischen Semiramis unmittelbar lebendig zu uns spricht.
 
@@ -357,7 +329,6 @@ Wir stehen am Schlusse. Von der sagenhaften Umhüllung befreit, sehen wir Semira
 Wir sahen, dass noch die Sage gewisse historische Einzelzüge bewahrt hat, und konnten die Hauptmomente erkennen, die für die Anknüpfung des Mythus an die geschichtliche Persönlichkeit maßgebend waren. Ist das schon ein nicht alltäglicher Gewinn der Forschung, so ist doch dieses Gesamtergebnis über den einzelnen Fall hinaus in mehreren Richtungen bedeutungsvoll.
 
 In dem Ringen zwischen Geschichte und Sage haben die Ausgrabungen in den alten Kulturgebieten des Ostens eine wesentliche Stärkung der historischen Forschung ergeben. Das goldreiche Mykene, das Troja der Ilias sind durch Schliemann und Dörpfeld wieder zu Wirklichkeiten geworden. Und --- ein Beispiel aus märkischem Boden --- die Überlieferung, dass in dem Grabe von Seddin ein Herrscher in einem dreifältigen Sarge bestattet sei, hat der Befund der Ausgrabung bestätigt. Aber Hektor und Agamemnon, Hekuba und Klytaemnestra bleiben als Persönlichkeiten im Nebel der Sage verborgen; nur die Umgebung, in der sie sich bewegten, die Hauptzüge der Geschehnisse, an denen sie oder ihresgleichen mitgewirkt haben, treten in das Licht der Geschichte.[^29]
-
 
 Dass eine Persönlichkeit, die die Trägerin und den Mittelpunkt einer ganzen Gruppe von Legenden bildet, als solche der Geschichte zurückgewonnen wird, ist eine große Seltenheit. Und wenn wir so die assyrische Königin Semiramis den geschichtlichen Gestalten zugesellen dürfen, die ob ihrer Bedeutung und ihres großen Wirkens zu Helden der Sage geworden sind, einem Harun-al-Raschid, Karl dem Großen, Dietrich von Bern, Friedrich Barbarossa und Friedrich 2. von Hohenstaufen, so erwächst dadurch dem Vertrauen auf das Vorhandensein eines historischen Kernes in den sagenhaften Überlieferungen, die bei einem Volke oder dessen Nachbarn über dessen Vorzeit verbreitet sind, eine hocherwünschte Stärkung.
 
@@ -465,7 +436,6 @@ St. = Strichätzung nach Zeichnungen von Künstlerhand, die --- sofern nichts an
 
 67\. Statue im Nebotempel zu Kalach-Nimrud Vorderansicht. --- St. --- Mat. S. 14 Fig. 21. Desgl. Rückansicht --- St. --- Mat. Tafel 5.
 
-
 ---
 
 [^1]: Die Rolle die die Taube in der Semiramis-Sage spielt, beruht wohl teils darauf, dass die Taube der Istar heilig ist (s. dazu H. Zimmern, Die Keilinschriften und das alte Testament, 3. Aufl., S. 429, 431 Anm. 5, 440) teils auf einem leichten Anklang des Namens der Semiramis an ein semitisches Wort für „Taube“ (bab.-assyr. summatu)
@@ -525,4 +495,3 @@ St. = Strichätzung nach Zeichnungen von Künstlerhand, die --- sofern nichts an
 [^28]: Die Hose als Erfindung der Semiramis Diodor 2. 6, 6.
 
 [^29]: Über das Königsgrab von Seddin siehe A. Kiekebusch in der Sonntagsbeilage, Nr. 1 der „Vossischen Zeitung“ von 4. Januar 1910.
-
